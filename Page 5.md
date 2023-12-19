@@ -1,0 +1,13 @@
+# Page 5
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/437cb666-ff3b-43bd-abde-25ce0b668927)
+### [CTF Facing Worlds](https://discord.com/channels/512287844258021376/1132040858343059638/1150203207138684989)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/59dd12cc-ce23-4326-b1c9-9fcdb7848382)
+### [Shadow The Hedgehog](https://discord.com/channels/512287844258021376/1132040858343059638/1150203796832649236)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a0229c59-f6ab-4f02-b778-f4a0088c8da5)
+### [Froggy Chair](https://discord.com/channels/512287844258021376/1132040858343059638/1150207579486703677)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b3bc0989-1ea0-4cec-a991-fa6e679c47a3)
+### [Fire Leo 04 "Rynex"](https://discord.com/channels/512287844258021376/1132040858343059638/1150340554824110091)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5dd87b2a-7833-46e6-b1da-00cbed49083e)
+### [Pyramid](https://discord.com/channels/512287844258021376/1132040858343059638/1150410874272624682)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d1ec5edd-058d-4de2-b1e1-ff781b779943)
+### [Shambler](https://discord.com/channels/512287844258021376/1132040858343059638/1150453792328929382)
