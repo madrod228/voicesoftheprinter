@@ -10,7 +10,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6e0d544a-2080-4c46-b15c-8134b6748684)
 ### [Ben Drowned](https://discord.com/channels/512287844258021376/1132040858343059638/1158179144769753158)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/010f2227-70f5-4365-8753-8c90a9e7dad9)
-### [Glowstick Post](https://discord.com/channels/512287844258021376/1132040858343059638/1158369181381709927
+### [Glowstick Post](https://discord.com/channels/512287844258021376/1132040858343059638/1158369181381709927)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/450b3096-e8d9-4981-8f3d-1479f990425b)
 ### [Ena Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1159585801085145168)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/627e8d89-359a-424b-84c2-783241156a98)
