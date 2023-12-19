@@ -23,7 +23,7 @@
 ### [Broken Kiryu Cutout](https://discord.com/channels/512287844258021376/1132040858343059638/1141446578708688997)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/36d4fdac-bab4-4839-a4d8-38b9eaea9d6f)
 ### [HL1 Gman](https://discord.com/channels/512287844258021376/1132040858343059638/1141531559556559001)
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6ca0d85f-f50f-4229-b4a8-e04feb89f153)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6dd02245-6213-4846-89ff-c3b6479eb8af)
 ### [PH Kel](https://discord.com/channels/512287844258021376/1132040858343059638/1141705576674512926)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/03e1ac90-4610-4e03-a8c5-3a14ccd354f1)
 ### [Minecraft Argem](https://discord.com/channels/512287844258021376/1132040858343059638/1141705690373689434)
