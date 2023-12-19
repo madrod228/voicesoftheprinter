@@ -1,4 +1,4 @@
-# Page 2 ### []()
+# Page 2
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/26e74ce1-f17e-41f8-be5a-47af562b6567)
 ### [Ratshot Box and Bullet](https://discord.com/channels/512287844258021376/1132040858343059638/1137678256217268224)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/905bfe49-6534-43e4-acfc-35c5ec0bc99d)
@@ -28,4 +28,4 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/03e1ac90-4610-4e03-a8c5-3a14ccd354f1)
 ### [Minecraft Argem](https://discord.com/channels/512287844258021376/1132040858343059638/1141705690373689434)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ae2f4a09-8c17-42cd-a2fc-e23f44580b71) ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ab1b3360-66cf-41ea-861e-5f201ab1f980)
-### [Monster Energy Can + Crushed Can](https://discord.com/channels/512287844258021376/1132040858343059638/1141755497809203231) [Alt Crushed Can](https://discord.com/channels/512287844258021376/1132040858343059638/1141783221797929094)
+### [Monster Energy Can + Crushed Can](https://discord.com/channels/512287844258021376/1132040858343059638/1141755497809203231) and [Alt Crushed Can](https://discord.com/channels/512287844258021376/1132040858343059638/1141783221797929094)
