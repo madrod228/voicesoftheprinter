@@ -16,7 +16,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3de6745f-2cd9-4c6f-8950-94f26c49b5cc)
 ### [Blitzo](https://discord.com/channels/512287844258021376/1132040858343059638/1154146294747631777)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/81e957b9-d50b-4dc5-8c43-949f7195c20e)
-### [Ugly Cat Cutout](https://discord.com/channels/512287844258021376/1132040858343059638/1154375864046333972)
+### [Ugly Cat Cutout](https://discord.com/channels/512287844258021376/1132040858343059638/1155185610680705155)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b51a508d-d3f2-47c8-8451-58da58353474)
 ### [Glasses Argem](https://discord.com/channels/512287844258021376/1132040858343059638/1154482078415605881)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/19cc3766-a1fa-465e-9b69-d89c2cb25112)
