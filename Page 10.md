@@ -17,8 +17,8 @@
 ### [Orin Goblin](https://discord.com/channels/512287844258021376/1132040858343059638/1161260730578898974)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6e4776e6-48b1-44b5-971c-1d172f85a743)
 ### [Junko Fumo](https://discord.com/channels/512287844258021376/1132040858343059638/1161362586781093999)
-Junko
-### [Junko]()
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/556f6f98-a1ca-44a8-bc6d-beeec549d065)
+### [Junko](https://discord.com/channels/512287844258021376/1132040858343059638/1161661492748361839)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/20c9f895-deb3-43b8-87fa-5c7aeb28ab0a)
 ### [Lankey Kong](https://discord.com/channels/512287844258021376/1132040858343059638/1161770566932508792)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/46f4a271-8282-4ba8-a740-ddcd95fb1730)
