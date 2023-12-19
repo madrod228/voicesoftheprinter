@@ -1,6 +1,6 @@
 # Page 9
-(Place Holder No image provided)
-### [BB(Fate)](https://discord.com/channels/512287844258021376/1132040858343059638/1160298739156652062)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/bdebd55b-8cbe-48c1-98cd-8f6029d57667)
+### [BB(Fate) 4th Version](https://discord.com/channels/512287844258021376/1132040858343059638/1160298739156652062) and [Texture](https://discord.com/channels/512287844258021376/1132040858343059638/1161073962839719946)
 (Place Holder no image provided)
 ### [Guys](https://discord.com/channels/512287844258021376/1132040858343059638/1156973561278382222)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3fd7ba43-b9fa-4ff4-8086-def67c8b74f2)
