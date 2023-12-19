@@ -1,0 +1,11 @@
+# Page 7
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/e0754f58-8abf-4696-9e58-513ea07b8612)
+### [Blahaj](https://discord.com/channels/512287844258021376/1132040858343059638/1154800077043417108)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c879d864-353b-48a8-afba-5462db5317a4)
+### [Great Fox](https://discord.com/channels/512287844258021376/1132040858343059638/1154815065543938081)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/74a027ac-f1ea-49fa-9d57-274e448014e7)
+### [Trophy Holder](https://discord.com/channels/512287844258021376/1132040858343059638/1154893205574270977)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f5685eb9-0352-4e81-9472-67d331282720)
+### [Wheatley SM/MED/LRG](https://discord.com/channels/512287844258021376/1132040858343059638/1154910667116126349)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6270d32f-9f4c-4885-b139-18f588a887c6)
+### [Foxy HQ/LQ](https://discord.com/channels/512287844258021376/1132040858343059638/1155171441587785780)
