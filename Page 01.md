@@ -25,8 +25,9 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a141952f-0842-4514-8352-17dbc62d2625)
 ## [Scar H](https://discord.com/channels/512287844258021376/1132040858343059638/1156486493817274390)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/821144dc-052c-40e6-9e2e-2910712fa6b8)
-## [Floraium](https://discord.com/channels/512287844258021376/1132040858343059638/1136181766860845166)
+## [Floraium](https://discord.com/channels/512287844258021376/1132040858343059638/1136181766860845166) and [Red ALT.](https://discord.com/channels/512287844258021376/1132040858343059638/1171559984862085140)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/03429a02-e247-4e11-b11c-f2711d464bc7)
 ## [Astolfo Bean Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1137644825483690036)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/af8cb2b9-674b-4155-a645-0301d21db58e)
 
+### [Page 2](https://github.com/madrod228/voicesoftheprinter/edit/main/Page 02.md)
