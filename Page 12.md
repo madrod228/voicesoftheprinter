@@ -29,3 +29,5 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c78c6a37-dff1-4040-9031-d165bee15e6b)
 ## [Dart Monkey](https://discord.com/channels/512287844258021376/1132040858343059638/1167907708385628222)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/891f0778-2c52-4b5d-9d50-1f48896279df)
+
+### [Page 11](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2011.md) | [Page 13](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2013.md)
