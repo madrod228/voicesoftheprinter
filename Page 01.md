@@ -30,4 +30,4 @@
 ## [Astolfo Bean Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1137644825483690036)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/af8cb2b9-674b-4155-a645-0301d21db58e)
 
-### [Page 2](https://github.com/madrod228/voicesoftheprinter/edit/main/Page 02.md)
+### [Page 2](https://github.com/madrod228/voicesoftheprinter/blob/c1e977aa58d177705bb8fe57df90490327aacab2/Page%2002.md)
