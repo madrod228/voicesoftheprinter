@@ -30,3 +30,4 @@
 ## [Dark Voyager](https://discord.com/channels/512287844258021376/1132040858343059638/1157525665244004443)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d42cce1f-7c1d-4997-b66f-37d4855ac9f3)
 
+### [Page 7](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2007.md) | [Page 9](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2009.md)
