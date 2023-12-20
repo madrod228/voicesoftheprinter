@@ -1,4 +1,4 @@
-# Page 20
+# Page 21
 ## [Bass Guitar](https://discord.com/channels/512287844258021376/1132040858343059638/1180756506308771850)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7016849a-4811-4d54-8d65-7898baf7afb6)
 ## [Mal0](https://discord.com/channels/512287844258021376/1132040858343059638/1181050155890384996)
