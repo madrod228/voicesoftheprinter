@@ -29,3 +29,5 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/fff933bf-dfbb-4c8b-bf3a-3c742a194575)![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7c2287fa-b575-4d34-953c-68b995d5c360)
 ## [Jax](https://discord.com/channels/512287844258021376/1132040858343059638/1168600743062798377)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/dd29d5a1-7fb8-4573-ba23-144d744e7d7c)
+
+### [Page 12](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2012.md) | [Page 14](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2014.md)
