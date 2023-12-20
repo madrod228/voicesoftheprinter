@@ -30,3 +30,4 @@
 ## [Halo Rat](https://discord.com/channels/512287844258021376/1132040858343059638/1156103093461733397)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4496f850-b83c-4db6-9f24-70d9c4b6c851)
 
+### [Page 6](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2006.md) | [Page 8](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2008.md)
