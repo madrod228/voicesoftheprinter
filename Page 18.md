@@ -13,7 +13,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/24dcbec0-2119-4521-8a51-c4e7b2afd0b2)
 ## [Zonaite](https://discord.com/channels/512287844258021376/1132040858343059638/1175236449684181042)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/57de1355-f98e-4ac0-b798-8e4ad29fa5f0)
-## [AK74](https://discord.com/channels/512287844258021376/1132040858343059638/1175251244554661979) and [VSS Vintorez](https://discord.com/channels/512287844258021376/1132040858343059638/1175251387198734336)
+## [AK74 and VSS Vintorez](https://discord.com/channels/512287844258021376/1132040858343059638/1179572904925597717)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b395d992-ac95-4d61-b746-77d35820ea7e)
 ## [Animal Crossing Coffee Cup](https://discord.com/channels/512287844258021376/1132040858343059638/1175581208579670116)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0942b40c-999a-4501-8921-0f6b10b021b8)
