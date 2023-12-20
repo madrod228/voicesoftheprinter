@@ -15,7 +15,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/450b3096-e8d9-4981-8f3d-1479f990425b)
 ## [SPAMTON G. SPAMTON Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1159587956659589223)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/627e8d89-359a-424b-84c2-783241156a98)
-## [Zumbo](https://discord.com/channels/512287844258021376/1132040858343059638/1159600456184639498)
+## [Zumbo Sauce](https://discord.com/channels/512287844258021376/1132040858343059638/1159600456184639498)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6a9f3556-8764-4d41-a63b-4a2f53df92ea)
 ## [Coach](https://discord.com/channels/512287844258021376/1132040858343059638/1159785632843964427)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/39583b5a-e290-4683-a7e2-464f0fc579f6)
