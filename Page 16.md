@@ -16,7 +16,7 @@
 ## [Soltomia](https://discord.com/channels/512287844258021376/1132040858343059638/1172271223267393658)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/23116264-fef4-40e4-b0fa-300daf3ffd24)
 ## [Kaida](https://discord.com/channels/512287844258021376/1132040858343059638/1172287052096753674)
-https://discord.com/channels/512287844258021376/1132040858343059638/1172287022161997934
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a6f65332-0b38-4947-a987-6899bbd890af)
 ## [Fumbi (S4 League)](https://discord.com/channels/512287844258021376/1132040858343059638/1172685987193827389)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8b46c76a-e73e-45f1-9093-78b61d470f41)
 ## [Mesa](https://discord.com/channels/512287844258021376/1132040858343059638/1172692075972657182)
