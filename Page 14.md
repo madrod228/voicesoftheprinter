@@ -29,3 +29,5 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f05a00d0-ecb1-4e99-ab94-d5e0ecbfe814)
 ## [Basking Shark](https://discord.com/channels/512287844258021376/1132040858343059638/1170004130375401514)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/46091ca2-3e36-4570-9b64-dda3380a6a6b)
+
+### [Page 13](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2013.md) | [Page 15](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2015.md)
