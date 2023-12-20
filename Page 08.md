@@ -25,7 +25,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/177c79c2-9c80-4052-b51b-391002222a96)
 ## [Skull Emoji](https://discord.com/channels/512287844258021376/1132040858343059638/1156926711900942437)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a39806ec-710c-4be1-bede-dfa9e2d31225)
-## [Blanket](https://discord.com/channels/512287844258021376/1132040858343059638/1157199122596642838)
+## [Blanket](https://discord.com/channels/512287844258021376/1132040858343059638/1157199122596642838) and [Alt Colors](https://discord.com/channels/512287844258021376/1132040858343059638/1165675815732781108)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/527776aa-edc4-41da-b7f6-395fdc3f11d5)
 ## [Dark Voyager](https://discord.com/channels/512287844258021376/1132040858343059638/1157525665244004443)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d42cce1f-7c1d-4997-b66f-37d4855ac9f3)
