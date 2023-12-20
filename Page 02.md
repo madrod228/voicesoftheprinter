@@ -15,7 +15,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1f29a386-f78a-44b5-9af4-1c2968fcd753)
 ## [Minecraft Steve](https://discord.com/channels/512287844258021376/1132040858343059638/1140632940653576192) Can swap out skins will only do base layer no outer layers
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8c6cadd0-b706-4603-8f5b-6e4018e84648)
-## [Kerfus Mug](https://discord.com/channels/512287844258021376/1132040858343059638/1141142914135752816)
+## [Kerfus Mugs](https://discord.com/channels/512287844258021376/1132040858343059638/1141142914135752816) and [Red Alt.](https://discord.com/channels/512287844258021376/1132040858343059638/1166006686297894942)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5fcf5dfa-2cc2-4b36-a3bd-cd749d3811ac)
 ## [Gnome](https://discord.com/channels/512287844258021376/1132040858343059638/1141412026653081685)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/79c927cd-a72d-414d-a5c2-f9de561a8b67)
