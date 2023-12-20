@@ -29,3 +29,5 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/91b3ac45-f285-49cc-9c83-59fc1a608287)
 ## [Round Meal](https://discord.com/channels/512287844258021376/1132040858343059638/1175914138220904521)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d5521deb-549b-4994-b9e0-faa794a7e2dd)
+
+### [Page 17](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2017.md) | [Page 19](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2019.md)
