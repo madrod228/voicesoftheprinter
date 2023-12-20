@@ -29,3 +29,5 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/64b29b76-2ef6-4b3c-8e1a-cd535bb023ff)
 ## [Non Hypno Boykisster](https://discord.com/channels/512287844258021376/1132040858343059638/1180667643309604925)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/dda4759d-da76-4ee7-870e-d56fc8edcb24)
+
+### [Page 19](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2019.md) | [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2021.md)
