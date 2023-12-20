@@ -19,7 +19,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/23872381-cd43-4c73-997e-1e8cdd0ce182)
 ## [War of the Worlds book](https://discord.com/channels/512287844258021376/1132040858343059638/1179273675682357300)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7ca90f63-9b9c-4408-be42-b723aeec6c9c)
-## [Wolfgang Bowls SM/MED/JUM](https://discord.com/channels/512287844258021376/1132040858343059638/1179315359535341588
+## [Wolfgang Bowls SM/MED/JUM](https://discord.com/channels/512287844258021376/1132040858343059638/1179315359535341588)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/973e1e02-0d2b-404d-b39b-bf5687d47fad)
 ## [SciFi books](https://discord.com/channels/512287844258021376/1132040858343059638/1179889930063839405)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/9d401c03-ef26-4cbb-8c95-be2057365dff)
