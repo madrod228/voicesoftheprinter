@@ -30,3 +30,4 @@
 ## [Kel Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1146586684062969898)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c862c162-a5b3-4014-b2a3-e8cc97a674f7)
 
+### [Page 2](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2002.md) |[Page 4](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2004.md)
