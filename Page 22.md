@@ -17,3 +17,6 @@
 (Image Required)
 ## [Kel Funeral Plaque](https://discord.com/channels/512287844258021376/1132040858343059638/1186826426947751936)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/83c5b5b0-596a-43ec-aab1-73c52008c1c8)
+
+
+### [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2021.md) | 
