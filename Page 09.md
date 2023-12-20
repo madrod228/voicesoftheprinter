@@ -29,3 +29,5 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/e32eb66c-cc7a-4d4f-bf14-17259a3c5787)
 ## [Vore (Quake)](https://discord.com/channels/512287844258021376/1132040858343059638/1160974482110955611)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4ad93384-e66c-47f3-b5fb-1e96e12632d2)
+
+### [Page 8](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2008.md) | [Page 10](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2010.md)
