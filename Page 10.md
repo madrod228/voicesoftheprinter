@@ -30,3 +30,4 @@
 ## [Detective Lowry](https://discord.com/channels/512287844258021376/1132040858343059638/1162493934908493874)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/821ff458-7689-4494-96a5-9395a7837b1f)
 
+### [Page 9](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2009.md) | [Page 11](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2011.md)
