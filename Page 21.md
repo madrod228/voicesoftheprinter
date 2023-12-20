@@ -21,7 +21,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d632edde-49bf-4b82-a5a8-67428c3c1de6)
 ## [Gun Pack 1](https://discord.com/channels/512287844258021376/1132040858343059638/1182263769536135198)
 (Image Required)
-## [Printable PC](https://discord.com/channels/512287844258021376/1132040858343059638/1182475350341595197) and [Bloody Alt. Texture](https://discord.com/channels/512287844258021376/1132040858343059638/1183194619375276103)
+## [Printable PC](https://discord.com/channels/512287844258021376/1132040858343059638/1182475350341595197)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5bf39fac-fd19-43ce-a124-a71756cf1fee)
 ## [Funny Bear](https://discord.com/channels/512287844258021376/1132040858343059638/1183046592027168839)
 (Image Required)
