@@ -8,7 +8,8 @@
 ## [Aegis and Vexcalibur (Destiny)](https://discord.com/channels/512287844258021376/1132040858343059638/1167973321971867760)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2ab7a7b9-4cc6-4466-a1cf-335770ffb551)
 ## [Printable Argems](https://discord.com/channels/512287844258021376/1132040858343059638/1167974295717298327)
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/bada6ea4-e157-49f4-8a89-35344d683fee)![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f9655396-464d-4729-8c6b-13d88c538aad)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/bada6ea4-e157-49f4-8a89-35344d683fee)![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f9655396-464d-4729-8c6b-13d88c538aad)![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0e97f2d8-54f7-409a-8f4b-20023bcedc82)
+
 ## [Doug](https://discord.com/channels/512287844258021376/1132040858343059638/1168060726313746523)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c6e6c1f5-4b2e-4762-b70e-459bfeace29e)
 ## [SMB Wonder Talking Flower](https://discord.com/channels/512287844258021376/1132040858343059638/1168143427632906250)
