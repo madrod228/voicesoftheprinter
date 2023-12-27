@@ -28,6 +28,6 @@
 ## [Gun Pack 2](https://discord.com/channels/512287844258021376/1132040858343059638/1183057949053177886)
 (Image Required)
 ## [Penrose (Signalis)](https://discord.com/channels/512287844258021376/1132040858343059638/1183906350913310730)
-(Image Required)
+![VotV   12_27_2023 3_09_42 PM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3fcc74d3-8075-4991-b7b9-7ed7ebc55a9f)
 
 ### [Page 20](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2020.md)  | [Page 22](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2022.md)
