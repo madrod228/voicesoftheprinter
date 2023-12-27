@@ -14,7 +14,7 @@
 ## [Drone Controller](https://discord.com/channels/512287844258021376/1132040858343059638/1186747237762600961)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/eb7c37f4-61bd-4147-8d0c-8c43c5a343ad)
 ## [Bracken](https://discord.com/channels/512287844258021376/1132040858343059638/1186758705144922322)
-(Image Required)
+![VotV   12_27_2023 2_59_00 PM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6947d6eb-30e2-4942-b3cf-cd73559d403b)
 ## [Kel Funeral Plaque](https://discord.com/channels/512287844258021376/1132040858343059638/1186826426947751936)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/83c5b5b0-596a-43ec-aab1-73c52008c1c8)
 ## [Maxwell House](https://discord.com/channels/512287844258021376/1132040858343059638/1187198133134970931)
