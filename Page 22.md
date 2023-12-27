@@ -30,5 +30,4 @@
 ## [Wine and Polish Mead](https://discord.com/channels/512287844258021376/1132040858343059638/1188289572166193242)
 (Image Required)
 
-
-### [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2021.md) | [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2023.md) 
+### [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2021.md)  | [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2023.md)
