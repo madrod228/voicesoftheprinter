@@ -26,7 +26,7 @@
 ## [Niko Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1187414270565154986)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/53b063df-7344-4c91-ac6e-dcdde1c45c4d)
 ## [Coilhead](https://discord.com/channels/512287844258021376/1132040858343059638/1188202520259076209)
-(Image Required)
+![VotV   12_27_2023 2_54_53 PM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/38134ae6-5065-48b1-8f6a-bc21dc7986e4)
 ## [Wine and Polish Mead](https://discord.com/channels/512287844258021376/1132040858343059638/1189671583804051547)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f5210a28-4790-4ed5-b2b3-fc2b9e04e1f1)
 
