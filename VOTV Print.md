@@ -2,7 +2,7 @@
 - requirements
   - 1m in blender = 1cm ingame
   - every object needs a number prefix or can just be the number (number only is perfeered tho, seen issues with it being a prefix)
-  - ``0`` should be the main mesh
+  - ``0`` should be the Visual mesh
   - ``1,2,3``+ should be used for collision
   - every collision box will get convex hull'ed when imported or if no collision is there, the main model will be convex hull'ed
   - create the collision last or it will mess up the order for some reason
