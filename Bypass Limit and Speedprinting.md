@@ -6,7 +6,7 @@ This how every is easily bypassble, and will save you alot of time if you're pri
 
 ### [The Stick](https://discord.com/channels/512287844258021376/1132040858343059638/1187260278937755678)
 
-This is shrimply an untextured Stick. It only takes a few to print, and it large enough for you to see and grab it. We'll be using this to show you how to bypass the limits and speed of the printer.
+This is shrimply an untextured Stick. It only takes a little bit to print, and it's large enough for you to see and grab it. We'll be using this to show you how to bypass the limits and speed of the printer.
 
 First off You will want to rename the stick the model you want to print. I'll be using Big Kel for this.
 
