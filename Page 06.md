@@ -30,4 +30,4 @@
 ## [Mastersword](https://discord.com/channels/512287844258021376/1132040858343059638/1154739981269606463)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6ca02560-e9ce-4579-aa35-9508bebe0603)
 
-### [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2005.md) | [Page 7](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2007.md)
+### [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2005.md)  | [Page 7](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2007.md)
