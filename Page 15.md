@@ -30,4 +30,4 @@
 ## [Ipad](https://discord.com/channels/512287844258021376/1132040858343059638/1171829162877657138)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/377313ab-058d-44c1-a043-d0d20a525ade)
 
-### [Page 14](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2014.md) | [Page 16](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2016.md)
+### [Page 14](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2014.md)  | [Page 16](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2016.md)
