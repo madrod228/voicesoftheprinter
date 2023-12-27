@@ -24,5 +24,4 @@
 ## [Glaxwell](https://discord.com/channels/512287844258021376/1132040858343059638/1189617435259699241)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/90a195c3-c9be-42f9-9e41-34ab5969dab4)
 
-
-### [Page 22](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2022.md) |
+### [Page 22](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2022.md)  | [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2024.md)
