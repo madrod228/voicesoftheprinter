@@ -30,4 +30,4 @@
 ## [Penrose (Signalis)](https://discord.com/channels/512287844258021376/1132040858343059638/1183906350913310730)
 (Image Required)
 
-### [Page 20](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2020.md) | [Page 22](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2022.md)
+### [Page 20](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2020.md)  | [Page 22](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2022.md)
