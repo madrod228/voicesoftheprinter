@@ -18,7 +18,7 @@
 ## [Shiori Novella Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1189478646503706624)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/41bbfa1a-1b0f-463b-b126-ec9c540ca4f2)
 ## [Lethal Company Airhorn](https://discord.com/channels/512287844258021376/1132040858343059638/1189519968702824498)
-(Image Required)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2a8c6f25-255c-46ec-9925-aa7949c7bb61)
 ## [Mag Torture](https://discord.com/channels/512287844258021376/1132040858343059638/1189545790897668166)
 (Image Required)
 ## [Glaxwell](https://discord.com/channels/512287844258021376/1132040858343059638/1189617435259699241)
