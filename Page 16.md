@@ -30,4 +30,4 @@
 ## [Curtains and Kerftains](https://discord.com/channels/512287844258021376/1132040858343059638/1173356230371184780)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/cc563f94-ead7-4141-a38d-895d0d9ae755)
 
-### [Page 15](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2015.md) | [Page 17](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2017.md)
+### [Page 15](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2015.md)  | [Page 17](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2017.md)
