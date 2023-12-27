@@ -17,6 +17,18 @@
 (Image Required)
 ## [Kel Funeral Plaque](https://discord.com/channels/512287844258021376/1132040858343059638/1186826426947751936)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/83c5b5b0-596a-43ec-aab1-73c52008c1c8)
+## [Maxwell House](https://discord.com/channels/512287844258021376/1132040858343059638/1187198133134970931)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8f9554e7-e3d4-4063-9283-d5c2e59bbb74)
+## [Xmas Miku](https://discord.com/channels/512287844258021376/1132040858343059638/1187228969821544658)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/24c52c4a-840f-4f69-9332-a75932a8cb79)
+## [Xmas Tree 2](https://discord.com/channels/512287844258021376/1132040858343059638/1187263981409280053)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/15f00bf7-9f4f-472a-a2b1-e5fa5d74fe2b)
+## [Niko Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1187414270565154986)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/53b063df-7344-4c91-ac6e-dcdde1c45c4d)
+## [Coilhead](https://discord.com/channels/512287844258021376/1132040858343059638/1188202520259076209)
+(Image Required)
+## [Wine and Polish Mead](https://discord.com/channels/512287844258021376/1132040858343059638/1188289572166193242)
+(Image Required)
 
 
-### [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2021.md) | 
+### [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2021.md) | ### [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2023.md) 
