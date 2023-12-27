@@ -30,4 +30,4 @@
 ## [Vending Machine](https://discord.com/channels/512287844258021376/1132040858343059638/1150072789689184338)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c46d0540-b9e9-4f68-9bed-ea95a3652c83)
 
-### [Page 3](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2003.md) | [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2005.md)
+### [Page 3](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2003.md)  | [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2005.md)
