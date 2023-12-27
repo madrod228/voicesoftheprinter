@@ -30,4 +30,4 @@
 ## [Skibidi Ariral](https://discord.com/channels/512287844258021376/1132040858343059638/1151655500790902895)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b264aa57-073c-4837-a928-db0828e26eaa)
 
-### [Page 4](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2004.md) | [Page 6](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2006.md)
+### [Page 4](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2004.md)  |  [Page 6](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2006.md)
