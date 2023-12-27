@@ -30,4 +30,4 @@
 ## [Shinji Furina](https://discord.com/channels/512287844258021376/1132040858343059638/1174893017073725490)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d67bc6cc-ccdb-42a8-849c-2858d4a0892a)
 
-### [Page 16](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2016.md) | [Page 18](https://github.com/madrod228/voicesoftheprinter/blob/2c35d8678422c799e5926e212bbeaf077cc13409/Page%2018.md)
+### [Page 16](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2016.md)  | [Page 18](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2018.md)
