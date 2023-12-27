@@ -20,7 +20,7 @@
 ## [Lethal Company Airhorn](https://discord.com/channels/512287844258021376/1132040858343059638/1189519968702824498)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2a8c6f25-255c-46ec-9925-aa7949c7bb61)
 ## [Mag Torture](https://discord.com/channels/512287844258021376/1132040858343059638/1189545790897668166)
-(Image Required)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b5f1f155-d089-41c9-ba41-5b1de436bdd0)
 ## [Glaxwell](https://discord.com/channels/512287844258021376/1132040858343059638/1189617435259699241)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/90a195c3-c9be-42f9-9e41-34ab5969dab4)
 
