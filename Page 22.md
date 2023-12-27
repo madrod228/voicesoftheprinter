@@ -27,7 +27,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/53b063df-7344-4c91-ac6e-dcdde1c45c4d)
 ## [Coilhead](https://discord.com/channels/512287844258021376/1132040858343059638/1188202520259076209)
 (Image Required)
-## [Wine and Polish Mead](https://discord.com/channels/512287844258021376/1132040858343059638/1188289572166193242)
-(Image Required)
+## [Wine and Polish Mead](https://discord.com/channels/512287844258021376/1132040858343059638/1189671583804051547)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f5210a28-4790-4ed5-b2b3-fc2b9e04e1f1)
 
 ### [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2021.md)  | [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2023.md)
