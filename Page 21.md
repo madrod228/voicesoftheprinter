@@ -26,7 +26,7 @@
 ## [Funny Bear](https://discord.com/channels/512287844258021376/1132040858343059638/1183046592027168839)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/be363be0-1e5d-4662-871b-e186724d18de)
 ## [Gun Pack 2](https://discord.com/channels/512287844258021376/1132040858343059638/1183057949053177886)
-(Image Required)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5e9a1d8b-fb8e-4f01-b969-f5ac3ebaf80b)
 ## [Penrose (Signalis)](https://discord.com/channels/512287844258021376/1132040858343059638/1183906350913310730)
 ![VotV   12_27_2023 3_09_42 PM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3fcc74d3-8075-4991-b7b9-7ed7ebc55a9f)
 
