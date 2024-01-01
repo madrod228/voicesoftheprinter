@@ -2,7 +2,7 @@
 ## [BB(Fate) 4th Version](https://discord.com/channels/512287844258021376/1132040858343059638/1160298739156652062) and [Texture](https://discord.com/channels/512287844258021376/1132040858343059638/1161073962839719946)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/bdebd55b-8cbe-48c1-98cd-8f6029d57667)
 ## [Guys](https://discord.com/channels/512287844258021376/1132040858343059638/1156973561278382222)
-(Place Holder no image provided)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/cf0566bb-4e59-43f7-bc9a-f1f1a4ad7e12)
 ## [Poster Argem](https://discord.com/channels/512287844258021376/1132040858343059638/1157740397892747364)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3fd7ba43-b9fa-4ff4-8086-def67c8b74f2)
 ## [Cogsy and Painty(MLP OCs)](https://discord.com/channels/512287844258021376/1132040858343059638/1157832480397725747)
