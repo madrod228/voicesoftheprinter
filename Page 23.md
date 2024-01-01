@@ -19,9 +19,16 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/41bbfa1a-1b0f-463b-b126-ec9c540ca4f2)
 ## [Lethal Company Airhorn](https://discord.com/channels/512287844258021376/1132040858343059638/1189519968702824498)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2a8c6f25-255c-46ec-9925-aa7949c7bb61)
-## [Mag Torture](https://discord.com/channels/512287844258021376/1132040858343059638/1189545790897668166)
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b5f1f155-d089-41c9-ba41-5b1de436bdd0)
+## [Mag Torture](https://discord.com/channels/512287844258021376/1132040858343059638/1190072768054710272)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/277add9c-42bc-4528-b906-69a342c54204)
 ## [Glaxwell](https://discord.com/channels/512287844258021376/1132040858343059638/1189617435259699241)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/90a195c3-c9be-42f9-9e41-34ab5969dab4)
+## [Sanford](https://discord.com/channels/512287844258021376/1132040858343059638/1189756788652912690)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5193c39c-99c0-4ba0-a5ad-4f16e8984451)
+## [Frieren](https://discord.com/channels/512287844258021376/1132040858343059638/1189960862618894448)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/46cc03f1-ba82-4181-83cc-d9bbfff6b315)
+## [Signalis Weapons](https://discord.com/channels/512287844258021376/1132040858343059638/1189972045405102120)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0821f37c-a8e1-4643-a847-f64fc5ddc846)
+
 
 ### [Page 22](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2022.md)  | [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2024.md)
