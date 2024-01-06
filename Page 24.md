@@ -19,6 +19,15 @@
 (Image Required)
 ## [Hatsune Argemiku and Cherry Blossom Argemiku](https://discord.com/channels/512287844258021376/1132040858343059638/1191217697653006336)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a96fac43-3ef4-4935-ba12-d756cc49f994)
-
+## [Bunny Karin](https://discord.com/channels/512287844258021376/1132040858343059638/1191295871380365413)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b5bb2db4-bd43-40fd-ae70-0ef54c2e1217)
+## [Cyberman Head](https://discord.com/channels/512287844258021376/1132040858343059638/1191646142241447986)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8e176d3a-396b-40cb-93e3-1512628524f1)
+## [Beeg Smol Ouro Kronni](https://discord.com/channels/512287844258021376/1132040858343059638/1191980267758428292)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/96270370-c8e3-45f0-a44b-4b909d916498)
+## [Mini Moai](https://discord.com/channels/512287844258021376/1132040858343059638/1192042447405064222)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b85a8658-bb72-459b-ac5f-a94d73e778e2)
+## [Angled Drive Rack Holder](https://discord.com/channels/512287844258021376/1132040858343059638/1192405149486952489)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1e85c63d-6162-4cc4-9c30-207b74a0ef2f)
 
 ### [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2023.md)  | [Page 25](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2025.md)
