@@ -30,7 +30,7 @@ The Tutorials of the OG Github are lost but will be recreated. Once the lists ar
 ### [Page 22](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2022.md)
 ### [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2023.md)
 ### [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2024.md)
-
+### [Page 25](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2025.md)
 
 # Credits
 madrod228 hosts this and ripped all the raws
