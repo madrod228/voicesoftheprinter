@@ -7,7 +7,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0ae2abea-a4d9-48a4-8c09-ca924ca763cc)
 ## [Athenian Spaceship](https://discord.com/channels/512287844258021376/1132040858343059638/1192976412328591370)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/85b4b3b7-e4d1-4520-b046-62e69ce7dbc3)
-## [KLBR Smol]{https://discord.com/channels/512287844258021376/1132040858343059638/1193009570356928582) and [KLBR Beeg](https://discord.com/channels/512287844258021376/1132040858343059638/1193012445464236113)
+## [KLBR Smol](https://discord.com/channels/512287844258021376/1132040858343059638/1193009570356928582) and [KLBR Beeg](https://discord.com/channels/512287844258021376/1132040858343059638/1193012445464236113)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c444e1cc-51d2-4b1a-bb3a-4e0eef3307e4)
 ## [Monado](https://discord.com/channels/512287844258021376/1132040858343059638/1193058625678229564)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f5e39ffc-f5b9-4d56-b2a8-d472eab75c92)
