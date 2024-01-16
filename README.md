@@ -31,10 +31,13 @@ The Tutorials of the OG Github are lost but will be recreated. Once the lists ar
 ### [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2023.md)
 ### [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2024.md)
 ### [Page 25](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2025.md)
+### [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2026.md)
+### [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2027.md)
 
 # Credits
 madrod228 hosts this and ripped all the raws
-killerblade555 has done everything else
+killerblade555 has mostly everything else
+Sleep Deprived Gaming completed page 26 and started page 27
 
 
 (i am very busy-madrod
