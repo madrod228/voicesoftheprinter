@@ -26,3 +26,4 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/d4ed0a2c-792a-4919-afd5-896b7fb25021)
 
 
+### [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2026.md)  | [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)
