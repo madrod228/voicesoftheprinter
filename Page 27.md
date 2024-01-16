@@ -12,6 +12,8 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/788fdc08-b9e8-45a0-b3ce-824372c347fc)
 ## [Mindflayer Holder] She holds things (https://discord.com/channels/512287844258021376/1132040858343059638/1196591485408260210)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6663fe92-dd70-4a2d-b4d5-8ba54ccf8bee)
+## [Cerberus] Can hold things (https://discord.com/channels/512287844258021376/1132040858343059638/1196599645124689920)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/b653d404-1113-4b2b-b74a-8d0d3b5e13dd)
 
 
 
