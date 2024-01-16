@@ -19,7 +19,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/42e5f830-9ab6-48b0-856b-d28b0692d006)
 ## [Another coin](https://discord.com/channels/512287844258021376/1132040858343059638/1194989938094116934)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/e76ec562-0875-4416-b62e-b2b0c65f1dfc)
-## [Stray](https://discord.com/channels/512287844258021376/1132040858343059638/1195345288156680344)
+## [Stray Cat](https://discord.com/channels/512287844258021376/1132040858343059638/1195345288156680344)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/38389732-b65f-4fab-9857-78374bf44ac9)
 ## [Richard Mask](https://discord.com/channels/512287844258021376/1132040858343059638/1196211942256300132)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/61b01091-eb31-4598-a4c5-ef6b9f873986)
