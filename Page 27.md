@@ -29,3 +29,4 @@
 ## [Circuit Bee Hive](https://discord.com/channels/512287844258021376/1132040858343059638/1196854437340270712)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/0a1969f8-d5eb-4349-bb8e-b5e10e60d80a)
 
+### [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2025.md)  | [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2027.md)
