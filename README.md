@@ -36,7 +36,9 @@ The Tutorials of the OG Github are lost but will be recreated. Once the lists ar
 
 # Credits
 madrod228 hosts this and ripped all the raws
+
 killerblade555 has mostly everything else
+
 Sleep Deprived Gaming completed page 26 and started page 27
 
 
