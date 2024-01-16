@@ -25,7 +25,7 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/61b01091-eb31-4598-a4c5-ef6b9f873986)
 ## [Baseball Bat](https://discord.com/channels/512287844258021376/1132040858343059638/1196212061441638420)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/bf641d3b-bcc8-415c-8240-622a46b6c28b)
-## [Anton Chigurch](https://discord.com/channels/512287844258021376/1132040858343059638/1196299716804227182)
+## [Anton Chigurch Cutout](https://discord.com/channels/512287844258021376/1132040858343059638/1196299716804227182)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/9d930e90-51b4-4cfb-824a-f09a51652f15)
 ## [Hakita Patala Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1196497616385613825)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/8d1aaa2a-8cd4-4ae6-ab54-338485ca8d97)
