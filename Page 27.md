@@ -18,4 +18,12 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f316b688-d201-4028-a73d-d7ec5001b2c7)
 ## [PITR Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1196632710228213900)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/1d38d756-6e21-4445-ac59-4cc6a6bc49dc)
+## [Kel Funeral Shrine](https://discord.com/channels/512287844258021376/1132040858343059638/1196639297898553374)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/1ed9891b-de20-43a8-ad58-c5c2754a3bef)!
+(https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/bad22b17-da50-40fb-b31b-49cf22f8ead4)
+## [Mini Sentry Chan](https://discord.com/channels/512287844258021376/1132040858343059638/1196657146708889611)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6a1d15fe-bbc2-435c-9cde-babd95dba220)
+## [Mini Kerfurs](https://discord.com/channels/512287844258021376/1132040858343059638/1196658331150991380)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/d4ed0a2c-792a-4919-afd5-896b7fb25021)
+
 
