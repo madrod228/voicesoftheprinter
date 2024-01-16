@@ -16,7 +16,6 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/b653d404-1113-4b2b-b74a-8d0d3b5e13dd)
 ## [Gabriel](https://discord.com/channels/512287844258021376/1132040858343059638/1196628621788450938)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f316b688-d201-4028-a73d-d7ec5001b2c7)
-
-
-
+## [PITR Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1196632710228213900)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/1d38d756-6e21-4445-ac59-4cc6a6bc49dc)
 
