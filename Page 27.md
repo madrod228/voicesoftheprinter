@@ -14,6 +14,8 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6663fe92-dd70-4a2d-b4d5-8ba54ccf8bee)
 ## [Cerberus](https://discord.com/channels/512287844258021376/1132040858343059638/1196599645124689920)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/b653d404-1113-4b2b-b74a-8d0d3b5e13dd)
+## [Gabriel](https://discord.com/channels/512287844258021376/1132040858343059638/1196628621788450938)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f316b688-d201-4028-a73d-d7ec5001b2c7)
 
 
 
