@@ -21,7 +21,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/e76ec562-0875-4416-b62e-b2b0c65f1dfc)
 ## [Stray](https://discord.com/channels/512287844258021376/1132040858343059638/1195345288156680344)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/38389732-b65f-4fab-9857-78374bf44ac9)
-## ![Richard Mask](https://discord.com/channels/512287844258021376/1132040858343059638/1196211942256300132)
+## ![Richard Mask]
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/cbe62f31-9b52-45aa-aab0-e2a46c109065)
 
 ### [Page 25](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2025.md)  | [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2027.md)
