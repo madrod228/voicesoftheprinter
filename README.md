@@ -40,5 +40,6 @@ killerblade555 has done mostly everything else
 
 Sleep Deprived Gaming completed page 26, 27 and started page 28
 
+DatboiZyion has yet to contribute (I irronically have no idea how to use github, but I promise to be useful
 
 (i am very busy-madrod
