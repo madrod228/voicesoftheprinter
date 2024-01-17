@@ -24,6 +24,10 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6a1d15fe-bbc2-435c-9cde-babd95dba220)
 ## [Mini Kerfurs](https://discord.com/channels/512287844258021376/1132040858343059638/1196658331150991380)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/d4ed0a2c-792a-4919-afd5-896b7fb25021)
+## [Dawg Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1196815031111786599)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/50d0faeb-8171-468e-a093-21791ef73968)
+## [Circuit Bee Hive](https://discord.com/channels/512287844258021376/1132040858343059638/1196854437340270712)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/0a1969f8-d5eb-4349-bb8e-b5e10e60d80a)
 
 
 ### [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2026.md)  | [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)
