@@ -1,9 +1,7 @@
 # Info
-This is a recreation of the OG Github created by Sahneisttoll. Sahne was banned for inappropiate behavior and in retailation deleted the github containing the links to all the 3D models. This new version will be operated by multiple people in order to ensure it wont get nuked like the old one that Sahne was the only one running.
+This is a Github containing all the 3D prints uploaded to [3D Print forum](https://discord.com/channels/512287844258021376/1132040858343059638) in the EternityDev Discord. Updated by multiple indivuduals to ensure it wont be deleted like the last one.
 
-Raw contains everything from the [3D Print forum](https://discord.com/channels/512287844258021376/1132040858343059638), but it is unorganized. You'll have a hard time seeing what all is made you can sift through it if you want to, but I recommend waiting for the new pages of everything to be made.
-
-The Tutorials of the OG Github are lost but will be recreated. Once the lists are organized.
+There are tutorials made if you need help making prints, or need to make large prints. If you are confused and still need help please feel free to ask in the 3D forum as multiple people can assist you.
 
 # Pages
 ### [Page 1](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2001.md)
@@ -33,13 +31,14 @@ The Tutorials of the OG Github are lost but will be recreated. Once the lists ar
 ### [Page 25](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2025.md)
 ### [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2026.md)
 ### [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2027.md)
+### [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)
 
 # Credits
 madrod228 hosts this and ripped all the raws
 
-killerblade555 has mostly everything else
+killerblade555 has done mostly everything else
 
-Sleep Deprived Gaming completed page 26 and started page 27
+Sleep Deprived Gaming completed page 26, 27 and started page 28
 
 
 (i am very busy-madrod
