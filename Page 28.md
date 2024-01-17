@@ -14,6 +14,8 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f500abde-2de6-4f10-9eac-05c12d5f9a0d)
 ## [Cancerous Rodent](https://discord.com/channels/512287844258021376/1132040858343059638/1197182193244590220)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c560208f-1e1b-4564-ae90-346cf093a1a9)
+## [Corpse of King Minos](https://discord.com/channels/512287844258021376/1132040858343059638/1197196554306601132)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/91ad8b31-814b-4a36-a3f6-5b3fa2d2a82d)
 
 
 
