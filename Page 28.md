@@ -16,8 +16,9 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c560208f-1e1b-4564-ae90-346cf093a1a9)
 ## [Corpse of King Minos](https://discord.com/channels/512287844258021376/1132040858343059638/1197196554306601132)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/91ad8b31-814b-4a36-a3f6-5b3fa2d2a82d)
-
-
-
+## [Kobold...](https://discord.com/channels/512287844258021376/1132040858343059638/1197236715518177422)
+![image] i ain't touching that shit
+## [Parin](https://discord.com/channels/512287844258021376/1132040858343059638/1197274605723861033)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/30d271a7-1be3-4fc9-ba30-1f7c11360cbe)
 
 ### [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2027.md)  | [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2029.md)
