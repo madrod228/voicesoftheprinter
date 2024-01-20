@@ -21,7 +21,7 @@
 ## [Gurun Parin](https://discord.com/channels/512287844258021376/1132040858343059638/1197337896668123186)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/bf4496ae-7463-41e1-8520-5a022f1983cd)
 ## [Swordsmachine +Sword](https://discord.com/channels/512287844258021376/1132040858343059638/1197619214102581368)
-![image]](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c6a36427-4da6-4437-8ab8-ed51bbad8e7b)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c6a36427-4da6-4437-8ab8-ed51bbad8e7b)
 ## [Beast Ball](https://discord.com/channels/512287844258021376/1132040858343059638/1197663672022077472)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/1d213f97-14ea-45aa-9379-be064a0853b1)
 ## [LC Anti-personnel Landmine](https://discord.com/channels/512287844258021376/1132040858343059638/1197682707749163179)
