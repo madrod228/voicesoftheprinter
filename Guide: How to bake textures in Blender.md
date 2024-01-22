@@ -59,4 +59,4 @@ To save this Image just go up to Image and select save or save as.
 
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/098d47f5-fd94-40f6-99ee-f77f82bf1ec0)
 
-Then you have it the complete texture for your model. Make sure you export your model with Materials otherwise it will try to use non existant textures to put on the model.
+Then you have it the complete texture for your model. Make sure you export your model without Materials otherwise it will try to use non existant textures to put on the model.
