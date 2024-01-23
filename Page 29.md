@@ -5,7 +5,7 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/d5032007-e795-48d9-a753-b32f7b010745)
 ## [Stack Kitty](https://discord.com/channels/512287844258021376/1132040858343059638/1198636200047673475)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/155120018/6973feb8-83b4-42c9-abe3-b2614fcca787)
-## [Samuel Hayden][https://discord.com/channels/512287844258021376/1132040858343059638/1198904619150090340)
+## [Samuel Hayden](https://discord.com/channels/512287844258021376/1132040858343059638/1198904619150090340)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/155120018/d1468571-0123-4d08-ae21-bbf328d12453)
 ## [Flesh Prisons](https://discord.com/channels/512287844258021376/1132040858343059638/1199155505298411641)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/155120018/05e37337-e291-4201-8db8-bc56421b3eff)
