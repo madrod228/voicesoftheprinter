@@ -9,5 +9,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/155120018/d1468571-0123-4d08-ae21-bbf328d12453)
 ## [Flesh Prisons](https://discord.com/channels/512287844258021376/1132040858343059638/1199155505298411641)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/155120018/05e37337-e291-4201-8db8-bc56421b3eff)
+## [SMBB Item Blocks](https://discord.com/channels/512287844258021376/1132040858343059638/1199440692561322015)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/4a217cb7-bf32-4453-a476-43583e015915)
 
 ### [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)  | [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)
