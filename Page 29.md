@@ -1,1 +1,13 @@
+## [Kel Model V2](https://discord.com/channels/512287844258021376/1132040858343059638/1198009767197675540)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/a4cf60e2-b27c-4bc8-9fe7-05cb3e6138b9)
+## [Stalkers](https://discord.com/channels/512287844258021376/1132040858343059638/1198386385590173787)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/70524697-8315-45eb-b7cd-3be6a15a43ee)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/d5032007-e795-48d9-a753-b32f7b010745)
+## [Stack Kitty](https://discord.com/channels/512287844258021376/1132040858343059638/1198636200047673475)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/155120018/6973feb8-83b4-42c9-abe3-b2614fcca787)
+## [Samuel Hayden]([https://discord.com/channels/512287844258021376/1132040858343059638/1198904619150090340)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/155120018/d1468571-0123-4d08-ae21-bbf328d12453)
+## [Flesh Prisons](https://discord.com/channels/512287844258021376/1132040858343059638/1199155505298411641)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/155120018/05e37337-e291-4201-8db8-bc56421b3eff)
 
+### [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)  | [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)
