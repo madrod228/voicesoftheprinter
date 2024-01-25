@@ -9,6 +9,17 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/155120018/d1468571-0123-4d08-ae21-bbf328d12453)
 ## [Flesh Prisons](https://discord.com/channels/512287844258021376/1132040858343059638/1199155505298411641)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/155120018/05e37337-e291-4201-8db8-bc56421b3eff)
-
+## [SMBB Item Blocks](https://discord.com/channels/512287844258021376/1132040858343059638/1199440692561322015)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/4a217cb7-bf32-4453-a476-43583e015915)
+## [0²](https://discord.com/channels/512287844258021376/1132040858343059638/1199452501729091625)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/5d7b97cf-fbf1-48e9-8152-b1ad9741ea35)
+## [SSBM DK](https://discord.com/channels/512287844258021376/1132040858343059638/1199484554646409226)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/d3ee73bc-70bd-4666-92ff-c5845aec51cb)
+## [UK Terminal](https://discord.com/channels/512287844258021376/1132040858343059638/1199620151570612264)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/2488e5da-7c0d-4892-bbfd-e9d76d6e37bc)
+## [HL2 Bathtub](https://discord.com/channels/512287844258021376/1132040858343059638/1199734361105379410)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/48dd51ad-75e1-4c74-bb4f-e864c29e1506)
+## [Combine Turret](https://discord.com/channels/512287844258021376/1132040858343059638/1199744634193203230)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/8e4d1bf2-c1b3-43dc-b2cf-7fff4097bcdb)
 
 ### [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)  | [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)
