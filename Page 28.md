@@ -9,7 +9,7 @@
 ## [LC Mimi Sentry](https://discord.com/channels/512287844258021376/1132040858343059638/1197051435611848796)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6e91d6b2-cddf-4749-b5eb-0be3a6acc196)
 ## [Cauldron](https://discord.com/channels/512287844258021376/1132040858343059638/1197107605596807240)
-![image]
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/5651f586-41cb-4716-a1cb-4602919c4b47)
 ## [Standing Sentry](https://discord.com/channels/512287844258021376/1132040858343059638/1197175734410690580)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f500abde-2de6-4f10-9eac-05c12d5f9a0d)
 ## [Cancerous Rodent](https://discord.com/channels/512287844258021376/1132040858343059638/1197182193244590220)
@@ -30,3 +30,4 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/0096450e-7e53-4d69-bb3d-4eecf20e2561)
 
 ### [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2027.md)  | [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2029.md)
+
