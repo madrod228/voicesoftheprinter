@@ -22,4 +22,5 @@
 ## [Combine Turret](https://discord.com/channels/512287844258021376/1132040858343059638/1199744634193203230)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/8e4d1bf2-c1b3-43dc-b2cf-7fff4097bcdb)
 
+
 ### [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)  | [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)
