@@ -22,7 +22,7 @@
 ## [Combine Turret](https://discord.com/channels/512287844258021376/1132040858343059638/1199744634193203230)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/8e4d1bf2-c1b3-43dc-b2cf-7fff4097bcdb)
 ## [5th Angel Ramiel](https://discord.com/channels/512287844258021376/1132040858343059638/1200114443741310976)
-![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c577e2e5-9bc4-41cf-b255-b136cd7e4846)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6bf73c7b-f6a5-477b-a053-84bb6d5561a0)
 ## [1971 Ford Falcon GTHO](https://discord.com/channels/512287844258021376/1132040858343059638/1200206937682358364)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/05110769-112d-4561-9fb1-1fd4a28dc0e9)
 ## [Fortnite Peter Griffin](https://discord.com/channels/512287844258021376/1132040858343059638/1200457727894372402)
