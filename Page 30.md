@@ -8,5 +8,9 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/2717ec24-b3b7-4f0f-a5a4-49de5cc9cc2c)
 ## [Ralsei Hatless](https://discord.com/channels/512287844258021376/1132040858343059638/1201330017418870877)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/2cf73d1b-86e7-4a39-b26a-2814388f573b)
+## [Alternate](https://discord.com/channels/512287844258021376/1132040858343059638/1201339195503943762)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/976aa294-30f6-4dc6-9fde-0140d3d72967)
+## [sans.](https://discord.com/channels/512287844258021376/1132040858343059638/1201353167540076584)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/1097aced-c2cd-422d-8d46-b9caba5bdb72)
 
 ### [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2029.md)  | [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2031.md)
