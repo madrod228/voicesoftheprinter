@@ -12,5 +12,7 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/976aa294-30f6-4dc6-9fde-0140d3d72967)
 ## [sans.](https://discord.com/channels/512287844258021376/1132040858343059638/1201353167540076584)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/1097aced-c2cd-422d-8d46-b9caba5bdb72)
+## [Wooden Table](https://discord.com/channels/512287844258021376/1132040858343059638/1201425628365328404)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/9877433d-533e-455f-86e0-b38839638bd0)
 
 ### [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2029.md)  | [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2031.md)
