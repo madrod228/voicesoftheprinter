@@ -21,6 +21,13 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/48dd51ad-75e1-4c74-bb4f-e864c29e1506)
 ## [Combine Turret](https://discord.com/channels/512287844258021376/1132040858343059638/1199744634193203230)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/8e4d1bf2-c1b3-43dc-b2cf-7fff4097bcdb)
-
+## [5th Angel Ramiel](https://discord.com/channels/512287844258021376/1132040858343059638/1200114443741310976)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6bf73c7b-f6a5-477b-a053-84bb6d5561a0)
+## [1971 Ford Falcon GTHO](https://discord.com/channels/512287844258021376/1132040858343059638/1200206937682358364)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/05110769-112d-4561-9fb1-1fd4a28dc0e9)
+## [Fortnite Peter Griffin](https://discord.com/channels/512287844258021376/1132040858343059638/1200457727894372402)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/095560c8-803a-4781-b3b8-27c93a8bc92a)
+## [Among Drip](https://discord.com/channels/512287844258021376/1132040858343059638/1200472593283698888)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/06960411-8969-433d-bc75-3d6d1935d4cc)
 
 ### [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)  | [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)
