@@ -26,5 +26,8 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6e23031f-512e-40b6-873f-944cbec9d1a7)
 ## [Sonic.EXE(mention fnf to me and i will steal your skeleton)](https://discord.com/channels/512287844258021376/1132040858343059638/1202030897780772905)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/045a5921-db09-4fb5-8101-e1379153d8a6)
+## [FaKE MaxweLl](https://discord.com/channels/512287844258021376/1132040858343059638/1202065858420293692)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/7b314ac0-0e43-4960-98e4-55d9f28cd740)
+
 
 ### [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2029.md)  | [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2031.md)
