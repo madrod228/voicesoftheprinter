@@ -36,7 +36,7 @@ There are tutorials made if you need help making prints, or need to make large p
 ### [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)
 
 # Credits
-madrod228 hosts this and ripped all the raws
+madrod228 started this specific repo but im passing it over to killerblade555 since I never have time for this
 
 killerblade555 has done mostly everything else
 
@@ -45,5 +45,3 @@ Sleep Deprived Gaming has done pages 26-29
 Sahneisttoll for the VOTV Printer Guide
 
 DatboiZyion has yet to contribute (I irronically have no idea how to use github, but I promise to be useful
-
-(i am very busy-madrod
