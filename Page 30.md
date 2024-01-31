@@ -22,6 +22,8 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/1d015dc0-527f-4da6-a18c-2ab9f9c7f728)
 ## [N](https://discord.com/channels/512287844258021376/1132040858343059638/1202021390795145226)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c47d563d-8533-413a-9d94-fa1a06df3bc0)
+## [Terrarium](https://discord.com/channels/512287844258021376/1132040858343059638/1202029919110959125)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6e23031f-512e-40b6-873f-944cbec9d1a7)
 ## [Sonic.EXE(mention fnf to me and i will steal your skeleton)](https://discord.com/channels/512287844258021376/1132040858343059638/1202030897780772905)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/045a5921-db09-4fb5-8101-e1379153d8a6)
 
