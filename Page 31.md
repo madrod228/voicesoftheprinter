@@ -1,5 +1,5 @@
 ## [Mcdonalds Hatsune Argemiku](https://discord.com/channels/512287844258021376/1132040858343059638/1202685311940038716)
-<img width="356" alt="VotV_2_1_2024_12_37_59_PM" src="https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/05b73923-440f-4b41-99df-904f10f5d903">
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c82b58aa-6400-48b6-bb03-04ab90964174)
 ## [Ace of Spades](https://discord.com/channels/512287844258021376/1132040858343059638/1202695816284737584)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/b6643aaf-ecb7-40d8-9e51-50867e75c252)
 ## [gec (real)](https://discord.com/channels/512287844258021376/1132040858343059638/1202698421136392212)
