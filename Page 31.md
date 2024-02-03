@@ -12,7 +12,7 @@
 ## [Lain](https://discord.com/channels/512287844258021376/1132040858343059638/1203026022157783101)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/54cf3afd-641a-4c7d-baeb-b7674548984d)
 ## [Sushi](https://discord.com/channels/512287844258021376/1132040858343059638/1203428620828283024)
-![image](VotV_2_3_2024_1_54_25_PM" src="https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/7f559dbf-3fcb-4802-9010-f7c7703fc6ae)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/7f559dbf-3fcb-4802-9010-f7c7703fc6ae)
 
 
 ### [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)  | [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2032.md)
