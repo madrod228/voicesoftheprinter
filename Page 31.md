@@ -8,6 +8,8 @@
 ![image]
 ## [Lain](https://discord.com/channels/512287844258021376/1132040858343059638/1203026022157783101)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/54cf3afd-641a-4c7d-baeb-b7674548984d)
+## [Sushi](https://discord.com/channels/512287844258021376/1132040858343059638/1203428620828283024)
+<img width="738" alt="VotV_2_3_2024_1_54_25_PM" src="https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/2bd3cd08-289c-4fb0-9c34-90b3c68c4726">
 
 
 
