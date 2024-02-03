@@ -14,8 +14,8 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/1097aced-c2cd-422d-8d46-b9caba5bdb72)
 ## [Wooden Table](https://discord.com/channels/512287844258021376/1132040858343059638/1201425628365328404)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/9877433d-533e-455f-86e0-b38839638bd0)
-## [Rei and Lain](https://discord.com/channels/512287844258021376/1132040858343059638/1201763273696100394)
-![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/630aa6d3-e155-408d-a315-15a87db6760e)
+## [Rei](https://discord.com/channels/512287844258021376/1132040858343059638/1201763273696100394)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6bb39c1e-41cf-4faa-bfa5-6ca91b53ce8e)
 ## [Mandela Catalogue Alternates](https://discord.com/channels/512287844258021376/1132040858343059638/1201819510953218048)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/810fd6ce-3496-416b-af71-3c304c52025a)
 ## [Combine Hunter](https://discord.com/channels/512287844258021376/1132040858343059638/1201996156360732793)
@@ -28,6 +28,5 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/045a5921-db09-4fb5-8101-e1379153d8a6)
 ## [faKE MaxweLl](https://discord.com/channels/512287844258021376/1132040858343059638/1202065858420293692)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/7b314ac0-0e43-4960-98e4-55d9f28cd740)
-
 
 ### [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2029.md)  | [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2031.md)
