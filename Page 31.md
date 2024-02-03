@@ -9,7 +9,7 @@
 ## [gec (real)](https://discord.com/channels/512287844258021376/1132040858343059638/1202698421136392212)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/3f0417c4-2c3d-4997-aad8-0b354237e025)
 ## [Adrik Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1202828059229822997)
-![image]
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f4cd6b00-803d-427c-9888-1b17803da5b6)
 ## [Lain](https://discord.com/channels/512287844258021376/1132040858343059638/1203026022157783101)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/54cf3afd-641a-4c7d-baeb-b7674548984d)
 ## [Sushi](https://discord.com/channels/512287844258021376/1132040858343059638/1203428620828283024)
