@@ -1,3 +1,5 @@
+## [Goku](https://discord.com/channels/512287844258021376/1132040858343059638/1202311258444144640)
+<img width="262" alt="VotV_1_31_2024_11_52_45_AM" src="https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/0b5a1b86-776b-4458-825f-82bb2fb1c0e9">
 ## [Mcdonalds Hatsune Argemiku](https://discord.com/channels/512287844258021376/1132040858343059638/1202685311940038716)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c82b58aa-6400-48b6-bb03-04ab90964174)
 ## [Ace of Spades](https://discord.com/channels/512287844258021376/1132040858343059638/1202695816284737584)
