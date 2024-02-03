@@ -1,5 +1,3 @@
-## [faKE MaxweLl](https://discord.com/channels/512287844258021376/1132040858343059638/1202065858420293692)
-![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/7b314ac0-0e43-4960-98e4-55d9f28cd740)
 ## [Mcdonalds Hatsune Argemiku](https://discord.com/channels/512287844258021376/1132040858343059638/1202685311940038716)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c82b58aa-6400-48b6-bb03-04ab90964174)
 ## [Ace of Spades](https://discord.com/channels/512287844258021376/1132040858343059638/1202695816284737584)
