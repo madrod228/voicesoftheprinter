@@ -14,6 +14,13 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/54cf3afd-641a-4c7d-baeb-b7674548984d)
 ## [Sushi](https://discord.com/channels/512287844258021376/1132040858343059638/1203428620828283024)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/7f559dbf-3fcb-4802-9010-f7c7703fc6ae)
-
+## [gm_construct](https://discord.com/channels/512287844258021376/1132040858343059638/1203947708138790972)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/7f286e8b-bb57-4f84-8bab-38c0c1d97ec9)
+## [Plasma Cutter](https://discord.com/channels/512287844258021376/1132040858343059638/1204073189462777866)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/b25a298c-8bb1-41a4-bb53-49e9e67955d8)
+## [Naked Slasher](https://discord.com/channels/512287844258021376/1132040858343059638/1204122623232188466)
+![Screenshot (756)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/aa99029c-c200-40a8-8147-d68dd2538928)
+## [Engineer Helmet](https://discord.com/channels/512287844258021376/1132040858343059638/1204129247162007593)
+![Screenshot (757)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c1bfad99-a667-490b-9163-9d3e7f8e9353)
 
 ### [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)  | [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2032.md)
