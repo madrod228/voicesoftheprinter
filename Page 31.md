@@ -25,7 +25,7 @@
 ## [Beta Hand Cannon](https://discord.com/channels/512287844258021376/1132040858343059638/1204132998023483423)
 ![Screenshot (758)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/502dd73e-a1a1-4be0-9295-1df713a840e8)
 ## [Pool Chair](https://discord.com/channels/512287844258021376/1132040858343059638/1204197586928533554)
-![VotV_2_5_2024_4_46_49_PM](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/5d37b78c-c00e-479e-9bc7-fbac06d07e65)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/5d37b78c-c00e-479e-9bc7-fbac06d07e65)
 ## [Cinna](https://discord.com/channels/512287844258021376/1132040858343059638/1204523308012273704)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/cfb03a31-df51-4f13-a71f-d6920726298a)
 
