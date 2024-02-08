@@ -1,4 +1,4 @@
-## [gm_flatgrass pedestal]
+## [gm_flatgrass pedestal](https://discord.com/channels/512287844258021376/1132040858343059638/1204553620113072200)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/925d8887-18b1-4dda-a9f3-5f5cd7278459)
 
 
