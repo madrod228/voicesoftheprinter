@@ -1,7 +1,7 @@
 # Page 19 
 ## [Dante DMC2](https://discord.com/channels/512287844258021376/1132040858343059638/1177677806327574628)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a71a88c3-55be-4556-8a76-b68af636f52d)
-## [Grunt and Agent](https://discord.com/channels/512287844258021376/1132040858343059638/1175951381849444402)
+## [Grunt and Agent](https://discord.com/channels/512287844258021376/1132040858343059638/1204890144847699988) (https://discord.com/channels/512287844258021376/1132040858343059638/1205201808700612678)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/85b662a2-38cb-4041-90e2-675e0bb38670)
 ## [Soldat](https://discord.com/channels/512287844258021376/1132040858343059638/1187160472928129034)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f866ffbb-1cd9-4bbe-97f7-ba3f52bf2a20)

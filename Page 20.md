@@ -15,7 +15,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6e99faa2-16db-4247-b14b-5a8eb035f357)
 ## [People Playground Human Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1178505654328119367)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/86798284-c95c-4688-a20d-298b1036799b)
-## [Deimos](https://discord.com/channels/512287844258021376/1132040858343059638/1178860678786854994)
+## [Deimos](https://discord.com/channels/512287844258021376/1132040858343059638/1205203096180101211)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/23872381-cd43-4c73-997e-1e8cdd0ce182)
 ## [War of the Worlds book](https://discord.com/channels/512287844258021376/1132040858343059638/1179273675682357300)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7ca90f63-9b9c-4408-be42-b723aeec6c9c)

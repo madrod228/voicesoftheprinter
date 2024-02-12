@@ -22,5 +22,11 @@
 ![Screenshot (756)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/aa99029c-c200-40a8-8147-d68dd2538928)
 ## [Engineer Helmet](https://discord.com/channels/512287844258021376/1132040858343059638/1204129247162007593)
 ![Screenshot (757)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c1bfad99-a667-490b-9163-9d3e7f8e9353)
+## [Beta Hand Cannon](https://discord.com/channels/512287844258021376/1132040858343059638/1204132998023483423)
+![Screenshot (758)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/502dd73e-a1a1-4be0-9295-1df713a840e8)
+## [Pool Chair](https://discord.com/channels/512287844258021376/1132040858343059638/1204197586928533554)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/5d37b78c-c00e-479e-9bc7-fbac06d07e65)
+## [Cinna](https://discord.com/channels/512287844258021376/1132040858343059638/1204523308012273704)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/cfb03a31-df51-4f13-a71f-d6920726298a)
 
 ### [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)  | [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2032.md)
