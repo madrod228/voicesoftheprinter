@@ -24,6 +24,9 @@
 ![Screenshot (830)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/59b6adad-275c-4270-b398-a0d60d59e3ad)
 ## [Marker](https://discord.com/channels/512287844258021376/1132040858343059638/1206796208828321912)
 ![Screenshot (832)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/d91c6b4c-43ff-4441-89ba-df85afb8afb0)
-
+## [Astr](https://discord.com/channels/512287844258021376/1132040858343059638/1206803823549489153)
+![20230720180237_1](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/447ee9a8-bd98-4e3a-aeba-bc35608cfe59)
+## [Flickers of a Distand Luminary](https://discord.com/channels/512287844258021376/1132040858343059638/1206804390082641981)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f665f115-935c-402d-a959-a427b726bbe6)
 
 ### [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2031.md)  | [Page 33](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2033.md)
