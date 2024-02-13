@@ -12,8 +12,8 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/e2affb88-e7e2-4882-acc7-cb1dfbca156e)
 ## [Another Maxxwell](https://discord.com/channels/512287844258021376/1132040858343059638/1205982847849201775)
 ![huge_maxwell](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/a77a7e10-a5e3-4663-9549-fef84e5b2475)
-## [DELETED](Another will come to take it's place)
-
+## [Isaacs](https://discord.com/channels/512287844258021376/1132040858343059638/1206762798856806501)
+![Screenshot (830)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/59b6adad-275c-4270-b398-a0d60d59e3ad)
 ## [Kinetic Arm](https://discord.com/channels/512287844258021376/1132040858343059638/1206370769765142548)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/39977089-44eb-4d55-b277-c20384f7644a)
 ## [Arm Boy](https://discord.com/channels/512287844258021376/1132040858343059638/1206377156335108136)
