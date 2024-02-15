@@ -1,6 +1,4 @@
 # Page 29
-## [Pool Chair](https://discord.com/channels/512287844258021376/1132040858343059638/1204197586928533554)
-![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/8dca5e2a-b92b-4aa2-8234-f1c1f18f7949)
 ## [Terrarium](https://discord.com/channels/512287844258021376/1132040858343059638/1202029919110959125)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/d42b829f-e40f-4305-9c72-a7f3765df3c8)
 ## [Sonic.exe](https://discord.com/channels/512287844258021376/1132040858343059638/1202031005628895262)
