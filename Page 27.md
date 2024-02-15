@@ -5,6 +5,8 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/b8928d04-ea8b-45b3-8240-a8c580d24789)
 ## [Beast Ball](https://discord.com/channels/512287844258021376/1132040858343059638/1197663672022077472)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/2a3a486c-a076-4d6b-8334-59a89db3c471)
+## [LC Anti-Personnel Landmine](https://discord.com/channels/512287844258021376/1132040858343059638/1197682707749163179)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f17b549e-8440-4a53-ab15-d36af78981a8)
 
 
 
