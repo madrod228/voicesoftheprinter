@@ -26,5 +26,9 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/a6d5a8f8-e68f-4d21-b65e-fa165911cccf)
 ## [LC Mimi Turret](https://discord.com/channels/512287844258021376/1132040858343059638/1202304685210337371)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/86c46ccf-85d8-4f8a-a2ef-b3e89af4d557)
+## [Cauldron](https://discord.com/channels/512287844258021376/1132040858343059638/1197107605596807240)
+![Screenshot (607)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c01e75d8-0f81-4280-9bd7-ddd3d1a8710f)
+## [Kobold](https://discord.com/channels/512287844258021376/1132040858343059638/1197236715518177422)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/56fd6e30-5548-4c0e-8447-70083c5fbf5b)
 
 ### [Page 25](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2025.md)  | [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2027.md)
