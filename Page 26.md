@@ -22,7 +22,7 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c7b96878-e63d-4427-b3ca-fbef892fb577)
 ## [Waddle Doo](https://discord.com/channels/512287844258021376/1132040858343059638/1196981894718423080)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/034db1b1-740d-4450-8323-23d075e1ee4c)
-## [Kitty](https://discord.com/channels/512287844258021376/1132040858343059638/1197007813663281313)
+## [Calibratian Cat](https://discord.com/channels/512287844258021376/1132040858343059638/1197007813663281313)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/a6d5a8f8-e68f-4d21-b65e-fa165911cccf)
 ## [LC Mimi Turret](https://discord.com/channels/512287844258021376/1132040858343059638/1202304685210337371)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/86c46ccf-85d8-4f8a-a2ef-b3e89af4d557)
