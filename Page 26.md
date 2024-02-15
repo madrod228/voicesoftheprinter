@@ -1,8 +1,4 @@
 # Page 26
-## [Gianni Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1194720338416771202)
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2105c6d7-466a-4923-aca0-2d006fda8868)
-## [Hoarding Bug](https://discord.com/channels/512287844258021376/1132040858343059638/1194965086620626994) can hold objects
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/42e5f830-9ab6-48b0-856b-d28b0692d006)
 ## [Richard Mask](https://discord.com/channels/512287844258021376/1132040858343059638/1196211942256300132)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/cbe62f31-9b52-45aa-aab0-e2a46c109065)
 ## [Baseball Bat](https://discord.com/channels/512287844258021376/1132040858343059638/1196212061441638420)
