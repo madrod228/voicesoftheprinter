@@ -22,7 +22,7 @@
 ## [Isaac Clarke](https://discord.com/channels/512287844258021376/1132040858343059638/1206762798856806501)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c5ba54ec-1e80-4b1e-b60d-e38c6f284057)
 ## [Marker Statue](https://discord.com/channels/512287844258021376/1132040858343059638/1206796208828321912)
-![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/993cc8e1-f403-4c07-ba3a-0f6b1dafbc74)
+![Screenshot (832)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/a80be91b-a88a-4807-bf2e-393fce994e3b)
 ## [Astr Doll](https://discord.com/channels/512287844258021376/1132040858343059638/1206803823549489153)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/522bdc6e-66d3-4048-a389-ec27118492e7)
 ## [Flickers of a Distant Luminary](https://discord.com/channels/512287844258021376/1132040858343059638/1206804390082641981)
