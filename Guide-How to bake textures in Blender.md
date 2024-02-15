@@ -19,7 +19,7 @@ Now you need to make a new Image with the Image texture you just made for the si
 
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b848c9d9-e2e7-4e67-8122-c97dc5333710)
 
-You do not need to make a special name for this, but this image texture needs to be placed in every Materials under Shader editor. Because this model im using only has 3 materials it will show the texture being in 3 different Materials with that 3 next to the name. Make sure to select it as well, It will have a white border when selected.
+Once you have the image texture created and have it selected(white border). Copy the image texture and paste it in every Material.
 
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/643689f0-686b-4e2a-b4e5-7a996f0ba55b)
 
