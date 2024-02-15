@@ -11,5 +11,16 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/55b13716-d3f4-4d33-a68d-9103f51f0085)
 ## [V2 Kel](https://discord.com/channels/512287844258021376/1132040858343059638/1198009767197675540)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/392c27b5-ee8a-4ed9-a593-c81561b943fb)
+## [Stacked Calcats](https://discord.com/channels/512287844258021376/1132040858343059638/1198636200047673475)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/aa2a8d9a-2ddd-4bcb-8705-311b3d22d1a4)
+## [Dr Samuel Hayden](https://discord.com/channels/512287844258021376/1132040858343059638/1198904619150090340)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/476f39f3-8f5d-418e-9e83-6a31fa1e14be)
+## [Flesh Prisons](https://discord.com/channels/512287844258021376/1132040858343059638/1199155505298411641)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/94e78cc7-e3cd-49d7-9214-61a0e259c161)
+## [SSMB Item Blocks](https://discord.com/channels/512287844258021376/1132040858343059638/1199440692561322015)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/7532726f-278f-41ea-83d7-ae357ceb181f)
+## [0²](https://discord.com/channels/512287844258021376/1132040858343059638/1199452501729091625)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/90f036b0-a79e-4e71-9e75-dbc43262e4a1)
+
 
 ### [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2026.md)  | [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)
