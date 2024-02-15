@@ -27,5 +27,7 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c10b285c-6a82-402b-bfb9-6b0b5bfbf115)
 ## [HL2 Bathtub](https://discord.com/channels/512287844258021376/1132040858343059638/1199734361105379410)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/34c8d7cd-6796-4f2f-9016-3c82ed22bbd7)
+## [Combine Turret](https://discord.com/channels/512287844258021376/1132040858343059638/1199744634193203230)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/20460cff-2f4a-49a3-b183-cb344a130486)
 
 ### [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2026.md)  | [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)
