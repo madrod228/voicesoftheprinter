@@ -12,6 +12,15 @@
 ## [Kel Funneral Shrines](https://discord.com/channels/512287844258021376/1132040858343059638/1196639297898553374)
 ![Screenshot_551](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/550ceaf9-7437-416c-9304-1684246a0730)
 ![image2](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/0d66866f-427c-438f-b2c2-2b73dc0db1cb)
-
+## [Mini Sentry Chan](https://discord.com/channels/512287844258021376/1132040858343059638/1196657146708889611)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/da4b360c-1a0b-46bc-b070-b5c77f549419)
+## [Mini Kerfurs](https://discord.com/channels/512287844258021376/1132040858343059638/1196658331150991380)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/2e08a672-f7a5-4550-ae7d-5ca1e8e927ae)
+## [Dawg Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1196815031111786599)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/4bdc8d73-6920-47e4-a82c-c5682d319662)
+## [Circuit Bee Hive](https://discord.com/channels/512287844258021376/1132040858343059638/1196854437340270712)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c7b96878-e63d-4427-b3ca-fbef892fb577)
+## [Waddle Doo](https://discord.com/channels/512287844258021376/1132040858343059638/1196981894718423080)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/034db1b1-740d-4450-8323-23d075e1ee4c)
 
 ### [Page 25](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2025.md)  | [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2027.md)
