@@ -13,7 +13,7 @@
 ## [Ubermorph](https://discord.com/channels/512287844258021376/1132040858343059638/1207163077678862416)
 ![Screenshot (868)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6a7b3b0e-6f0c-429f-8155-afa670b852d9)
 ## [Goro Majima](https://discord.com/channels/512287844258021376/1132040858343059638/1207185327786164284)
-
+![Screenshot (883)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/843c6f33-5803-4b25-8115-2afd70b1d49e)
 ## [Dopefish](https://discord.com/channels/512287844258021376/1132040858343059638/1207523168495996970)
 ![Screenshot (882)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/56126fdb-1148-408f-a176-b6e94d40a7ff)
 ## [Sleep's Ultrakill Models 2023-2024](https://discord.com/channels/512287844258021376/1132040858343059638/1207526370725466173)
