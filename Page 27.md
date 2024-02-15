@@ -7,9 +7,9 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/2a3a486c-a076-4d6b-8334-59a89db3c471)
 ## [LC Anti-Personnel Landmine](https://discord.com/channels/512287844258021376/1132040858343059638/1197682707749163179)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f17b549e-8440-4a53-ab15-d36af78981a8)
-
-
-
-
+## [Korone](https://discord.com/channels/512287844258021376/1132040858343059638/1197791208202834051)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/55b13716-d3f4-4d33-a68d-9103f51f0085)
+## [V2 Kel](https://discord.com/channels/512287844258021376/1132040858343059638/1198009767197675540)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/392c27b5-ee8a-4ed9-a593-c81561b943fb)
 
 ### [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2026.md)  | [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)
