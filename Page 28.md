@@ -3,9 +3,18 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/caa76ef5-f24f-419d-9f49-b90258d86758)
 ## [1971 Ford Falcon GTHO](https://discord.com/channels/512287844258021376/1132040858343059638/1200206937682358364)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/70364bd5-1e09-409c-b797-c97e41e5681d)
-
-
-
-
+## [Fortnite Peter Griffin](https://discord.com/channels/512287844258021376/1132040858343059638/1200457727894372402)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/fe9ecb84-9993-498f-a930-81a7c2835518)
+## [Among Drip](https://discord.com/channels/512287844258021376/1132040858343059638/1200472593283698888)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/fd52f9de-a2f8-4510-9745-17cee04dfd4a)
+## [Peter Medallion](https://discord.com/channels/512287844258021376/1132040858343059638/1200569506586701935)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f23248d3-4f27-4107-9eaf-8d0eac1dd6e9)
+## [Beach Ball](https://discord.com/channels/512287844258021376/1132040858343059638/1200920945544663142)
+## [Jerma985](https://discord.com/channels/512287844258021376/1132040858343059638/1201312382522249327)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/39f4b2f1-153b-4de4-92ab-a57d49b8d646)
+## [Disguised Ralsei](https://discord.com/channels/512287844258021376/1132040858343059638/1201323155386540123)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/42f76c26-b5ab-4ded-ac55-22e2a27715b9)
+## [Ralsei](https://discord.com/channels/512287844258021376/1132040858343059638/1201330017418870877)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/b6e3c439-2300-4b51-816f-bebed7f4b36d)
 
 ### [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2027.md)  | [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2029.md)
