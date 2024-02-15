@@ -25,6 +25,9 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/ad086f2d-9bb6-4c86-82f7-18fca428b65e)
 ## [Alternates](https://discord.com/channels/512287844258021376/1132040858343059638/1201828761062871071)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/befa7675-9e98-473b-81f8-4bc62467bb73)
-
+## [Combine Hunter](https://discord.com/channels/512287844258021376/1132040858343059638/1201996156360732793)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6eb293c3-1bdb-4af9-bae2-476aadff56e7)
+## [N](https://discord.com/channels/512287844258021376/1132040858343059638/1202021390795145226)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/4ecd0b71-064d-41d3-b49e-1ba2909d0f9c)
 
 ### [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2027.md)  | [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2029.md)
