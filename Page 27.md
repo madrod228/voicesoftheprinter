@@ -21,6 +21,11 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/7532726f-278f-41ea-83d7-ae357ceb181f)
 ## [0²](https://discord.com/channels/512287844258021376/1132040858343059638/1199452501729091625)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/90f036b0-a79e-4e71-9e75-dbc43262e4a1)
-
+## [SSMB DK](https://discord.com/channels/512287844258021376/1132040858343059638/1199484554646409226)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/2298394e-f181-4b56-8f47-c68fc2fdfb1c)
+## [UK Terminal](https://discord.com/channels/512287844258021376/1132040858343059638/1199620151570612264)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c10b285c-6a82-402b-bfb9-6b0b5bfbf115)
+## [HL2 Bathtub](https://discord.com/channels/512287844258021376/1132040858343059638/1199734361105379410)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/34c8d7cd-6796-4f2f-9016-3c82ed22bbd7)
 
 ### [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2026.md)  | [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)
