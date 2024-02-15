@@ -25,9 +25,9 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4aecbf2a-c036-4b89-b047-12e9c52e2ec2)
 ## [Stubby](https://discord.com/channels/512287844258021376/1132040858343059638/1193404450535125123)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/49edc7b0-8ab9-42de-8668-1de1e6a66970)
-## [UK Sawblade Launcher](https://discord.com/channels/512287844258021376/1132040858343059638/1193927139779678289)
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a57b6ecf-d561-4ea3-82e9-487f8810c161)
-## [Guttertank](https://discord.com/channels/512287844258021376/1132040858343059638/1193932270227161118)
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/cd2fc0a5-19c9-4263-8ac5-36ff39906e4f)
+## []()
+
+## []()
+
 
 ### [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2024.md)  | [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2026.md)
