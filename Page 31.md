@@ -16,5 +16,7 @@
 
 ## [Dopefish](https://discord.com/channels/512287844258021376/1132040858343059638/1207523168495996970)
 ![Screenshot (882)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/56126fdb-1148-408f-a176-b6e94d40a7ff)
+## [Sleep's Ultrakill Models 2023-2024](https://discord.com/channels/512287844258021376/1132040858343059638/1207526370725466173)
+![Screenshot (575)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/9cf978d4-10f7-4c9f-ab48-a76ffc8ea98b)
 
 ### [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)  | [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2032.md)
