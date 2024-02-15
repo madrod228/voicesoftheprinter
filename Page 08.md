@@ -1,9 +1,9 @@
 # Page 8
-## [T-pose Protogen](https://discord.com/channels/512287844258021376/1132040858343059638/1156236005154758708)
+## [T-pose Protogen](will be replaced)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a9849cd9-898d-4e64-af51-b986ff4610cc)
 ## [V1](https://discord.com/channels/512287844258021376/1132040858343059638/1156262145613385748)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7f467f30-454e-40ad-b00c-3746930f018e)
-## [Protogen Object Holder](https://discord.com/channels/512287844258021376/1132040858343059638/1156273086778318889)
+## [Protogen Object Holder](will be replaced)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/03e0a08a-5bf5-4794-a86a-f9052a56a399)
 ## [Gamer Setup](https://discord.com/channels/512287844258021376/1132040858343059638/1156507757302792244)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/717628cf-fdec-46d6-8e4a-5c0cbf9e9bdf)
