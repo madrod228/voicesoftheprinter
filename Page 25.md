@@ -25,9 +25,9 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4aecbf2a-c036-4b89-b047-12e9c52e2ec2)
 ## [Stubby](https://discord.com/channels/512287844258021376/1132040858343059638/1193404450535125123)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/49edc7b0-8ab9-42de-8668-1de1e6a66970)
-## []()
-
-## []()
-
+## [Gianni Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1194720338416771202)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2105c6d7-466a-4923-aca0-2d006fda8868)
+## [Hoarding Bug](https://discord.com/channels/512287844258021376/1132040858343059638/1194965086620626994) can hold objects
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/42e5f830-9ab6-48b0-856b-d28b0692d006)
 
 ### [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2024.md)  | [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2026.md)
