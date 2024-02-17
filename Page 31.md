@@ -1,4 +1,4 @@
-# Page 31
+![Screenshot_895](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/0e8a829e-2ea3-4b20-977e-83b32e4af48a)# Page 31
 ## [V3 Kel Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1206970108363145266)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/19511c11-93ca-479f-baf3-bbac1098ae87)
 ## [Hideous Mass](https://discord.com/channels/512287844258021376/1132040858343059638/1206978765624971264)
@@ -18,5 +18,15 @@
 ![Screenshot (882)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/56126fdb-1148-408f-a176-b6e94d40a7ff)
 ## [Sleep's Ultrakill Models 2023-2024](https://discord.com/channels/512287844258021376/1132040858343059638/1208247254205333505)
 ![Screenshot (575)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/9cf978d4-10f7-4c9f-ab48-a76ffc8ea98b)
+## [Something Wicked](https://discord.com/channels/512287844258021376/1132040858343059638/1207842035969691688)
+![Screenshot (889)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/ab651f74-1497-4d21-ac4d-e820bba0c404)
+## [Virtue](https://discord.com/channels/512287844258021376/1132040858343059638/1207864367958335501)
+![Screenshot_895](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/de1bfe36-591a-4be2-ad15-3cc3bf8c2b38)
+## [Reaper Leviathan](https://discord.com/channels/512287844258021376/1132040858343059638/1208100713914175499)
+![Screenshot (899)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/39912a37-2026-40b6-8cda-2d62a56b0105)
+## [Feedbacker](https://discord.com/channels/512287844258021376/1132040858343059638/1208117170329096192)
+![Screenshot_901](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/678fa54c-657b-451b-a5b7-397a0f7cc7bd)
+## [Blood Puppet](https://discord.com/channels/512287844258021376/1132040858343059638/1208152631353155675)
+![2024 02 16-14 45 36 567](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/0287f8cf-4db7-4120-b799-23ab508b92ec)
 
 ### [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)  | [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2032.md)
