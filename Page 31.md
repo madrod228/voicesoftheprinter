@@ -1,4 +1,4 @@
-![Screenshot_895](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/0e8a829e-2ea3-4b20-977e-83b32e4af48a)# Page 31
+# Page 31
 ## [V3 Kel Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1206970108363145266)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/19511c11-93ca-479f-baf3-bbac1098ae87)
 ## [Hideous Mass](https://discord.com/channels/512287844258021376/1132040858343059638/1206978765624971264)
