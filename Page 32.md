@@ -14,5 +14,13 @@
 ## [Cooked Fish & Streetcleaner](https://discord.com/channels/512287844258021376/1132040858343059638/1209195088044105738)
 ![Screenshot_2024-02-19_112943](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/21e9c2c6-1a94-4eb7-b170-34aa4677f7c4)
 ![Screenshot_2024-02-19_114843](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/d63ba89f-94d4-47f8-b176-6f40a9b64685)
+## [Decor Wall](https://discord.com/channels/512287844258021376/1132040858343059638/1209515849816215602)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/edbe65e4-439b-4666-a640-5cda1725d0a2)
+## [Angel Dust](https://discord.com/channels/512287844258021376/1132040858343059638/1209827045098393601)
+![angel](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/cf5c023d-33ca-431a-8b5e-6b22d3647b60)
+## [Gilded Sword](https://discord.com/channels/512287844258021376/1132040858343059638/1210083710263627827)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/88cc9760-fff7-4035-8a94-6d13f8043e55)
+## [D20 Dies](https://discord.com/channels/512287844258021376/1132040858343059638/1210155046554177586)
+![20240222-012256776-VotV-Win64-Shipping](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/b58715d3-7bf0-4496-bed4-d07f0d0c9ff8)
 
 ### [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2031.md)  | [Page 33](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2033.md)
