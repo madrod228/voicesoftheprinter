@@ -28,5 +28,7 @@
 ![Screenshot_901](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/678fa54c-657b-451b-a5b7-397a0f7cc7bd)
 ## [Blood Puppet](https://discord.com/channels/512287844258021376/1132040858343059638/1208152631353155675)
 ![2024 02 16-14 45 36 567](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/0287f8cf-4db7-4120-b799-23ab508b92ec)
+## [Ultrakill Fish Pack](https://discord.com/channels/512287844258021376/1132040858343059638/1208535764535615498)
+![Screenshot (923)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/670ff4e0-c028-4d65-ba61-e7021ea14ee8)
 
 ### [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)  | [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2032.md)

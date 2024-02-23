@@ -34,7 +34,8 @@ There are tutorials made if you need help making prints, or need to make large p
 ### [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)
 ### [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2029.md)
 ### [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)
-
+### [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2031.md)
+### [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2032.md)
 # Credits
 madrod228 started this specific repo but im passing it over to killerblade555 since I never have time for this
 
