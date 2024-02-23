@@ -7,5 +7,12 @@
 ![wizard_hat_colors](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/21610e83-c077-4706-836b-89a6e5e91db5)
 ![wizard_manns](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/273626d9-fac8-407c-8e04-47cc30d3a99f)
 ![wizard_kerfur](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/3d3719f1-22e8-4e5a-ba01-449a2562779f)
+## [Mask of Madness](https://discord.com/channels/512287844258021376/1132040858343059638/1209018768349597726)
+![Screenshot (938)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/07a77717-0180-43ad-a1f2-57a43f121264)
+## [Kerfur Clock Stand](https://discord.com/channels/512287844258021376/1132040858343059638/1209082157356687360)
+![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/a465bc43-6fbf-4a71-b975-65058fe48e5b)
+## [Cooked Fish & Streetcleaner](https://discord.com/channels/512287844258021376/1132040858343059638/1209195088044105738)
+![Screenshot_2024-02-19_112943](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/21e9c2c6-1a94-4eb7-b170-34aa4677f7c4)
+![Screenshot_2024-02-19_114843](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/d63ba89f-94d4-47f8-b176-6f40a9b64685)
 
 ### [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2031.md)  | [Page 33](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2033.md)
