@@ -45,4 +45,4 @@ Sleep Deprived Gaming has done pages 26-29
 
 Sahneisttoll for the VOTV Printer Guide
 
-DatboiZyion has yet to contribute (I irronically have no idea how to use github, but I promise to be useful
+DatboiZyion has yet to contribute (School is a pain in the ass; I have no time to work on here
