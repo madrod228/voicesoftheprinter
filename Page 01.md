@@ -1,6 +1,6 @@
 # Page 1
-## [Among Us](https://discord.com/channels/512287844258021376/1132040858343059638/1132060331032711199)
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/77f6e137-567d-40c1-b232-d92c1a866d9f) CR: haru_3s
+## [Among Us](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Amongus/amongus.rar) CR: haru_3s
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/77f6e137-567d-40c1-b232-d92c1a866d9f) 
 ## [Boy Kisser Among Us](https://discord.com/channels/512287844258021376/1132040858343059638/1132089689915007116)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/313339de-93b8-4ca6-88e4-c53c9c4e6721)
 ## [Peep](https://discord.com/channels/512287844258021376/1132040858343059638/1132392992917954581)
