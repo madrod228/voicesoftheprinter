@@ -1,33 +1,33 @@
 # Page 6
-## [Mexican Alien](https://discord.com/channels/512287844258021376/1132040858343059638/1152751797702762537)
+## [Mexican Alien](https://discord.com/channels/512287844258021376/1132040858343059638/1152751797702762537) CR: dustincomp
 ![FqbHPK8](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6636b7ff-6ad3-4085-9faf-fa16ac8b319e)
-## [Saul Goodman](https://discord.com/channels/512287844258021376/1132040858343059638/1153023866633977936)
+## [Saul Goodman](https://discord.com/channels/512287844258021376/1132040858343059638/1153023866633977936) CR: vindakota
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/acb79e09-10f3-462b-9973-dee564449733)
-## [Funky Kong](https://discord.com/channels/512287844258021376/1132040858343059638/1153024017381462106)
+## [Funky Kong](https://discord.com/channels/512287844258021376/1132040858343059638/1153024017381462106) CR: vindakota
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f0fd07ee-a39f-4461-83c8-70d18af6fb91)
-## [Companion Cube](https://discord.com/channels/512287844258021376/1132040858343059638/1153024143881670686)
+## [Companion Cube](https://discord.com/channels/512287844258021376/1132040858343059638/1153024143881670686) CR: vindakota
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8433bd7b-cd55-47a5-b63c-d380e2c0cbca)
-## [Paper Holder](https://discord.com/channels/512287844258021376/1132040858343059638/1153436610059321405)
+## [Paper Holder](https://discord.com/channels/512287844258021376/1132040858343059638/1153436610059321405) CR: jettank123
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/42cdbd63-93b5-4b21-8814-98b4fb666616)
-## [Buizel](https://discord.com/channels/512287844258021376/1132040858343059638/1153627729632186398)
+## [Buizel](https://discord.com/channels/512287844258021376/1132040858343059638/1153627729632186398) CR: rheycore
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3472e416-53dc-4b14-b8bd-342a3abca123)
-## [Freddy Fazbear](https://discord.com/channels/512287844258021376/1132040858343059638/1154056038975287427)
+## [Freddy Fazbear](https://discord.com/channels/512287844258021376/1132040858343059638/1154056038975287427) CR: sahneitsttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b2954d19-280c-4ccc-a3f4-c552750e616d)
-## [Blitzo](https://discord.com/channels/512287844258021376/1132040858343059638/1154146294747631777)
+## [Blitzo](https://discord.com/channels/512287844258021376/1132040858343059638/1154146294747631777) CR: misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3de6745f-2cd9-4c6f-8950-94f26c49b5cc)
-## [Ugly Cat Cutout](https://discord.com/channels/512287844258021376/1132040858343059638/1155185610680705155)
+## [Ugly Cat Cutout](https://discord.com/channels/512287844258021376/1132040858343059638/1155185610680705155) CR: vhbc
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/81e957b9-d50b-4dc5-8c43-949f7195c20e)
-## [Glasses Argem](https://discord.com/channels/512287844258021376/1132040858343059638/1154482078415605881)
+## [Glasses Argem](https://discord.com/channels/512287844258021376/1132040858343059638/1154482078415605881) CR: nik_l0l
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b51a508d-d3f2-47c8-8451-58da58353474)
-## [Spamton Argem](https://discord.com/channels/512287844258021376/1132040858343059638/1154497697999507486)
+## [Spamton Argem](https://discord.com/channels/512287844258021376/1132040858343059638/1154497697999507486) CR: its_sasha
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/19cc3766-a1fa-465e-9b69-d89c2cb25112)
-## [Steve (Spore)](https://discord.com/channels/512287844258021376/1132040858343059638/1154524997340115045)
+## [Steve (Spore)](https://discord.com/channels/512287844258021376/1132040858343059638/1154524997340115045) CR: sahneitsttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4fea2f97-662f-48de-bfe0-eaf9c7e76f8e)
-## [Prototype Lego Brick](https://discord.com/channels/512287844258021376/1132040858343059638/1154544441667883100)
+## [Prototype Lego Brick](https://discord.com/channels/512287844258021376/1132040858343059638/1154544441667883100) CR: jettank123
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c9b21d43-c8bf-4049-b176-b90712380db2)
-## [Bob Big/Small](https://discord.com/channels/512287844258021376/1132040858343059638/1154639938873208893)
+## [Bob Big/Small](https://discord.com/channels/512287844258021376/1132040858343059638/1154639938873208893) CR: neko3240
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/49d87bed-8bff-421a-be47-980d339db9fc)
-## [Mastersword](https://discord.com/channels/512287844258021376/1132040858343059638/1154739981269606463)
+## [Mastersword](https://discord.com/channels/512287844258021376/1132040858343059638/1154739981269606463) CR: fritzlancastor
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6ca02560-e9ce-4579-aa35-9508bebe0603)
 
 ### [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2005.md)  | [Page 7](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2007.md)
