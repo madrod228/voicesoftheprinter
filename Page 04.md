@@ -1,33 +1,33 @@
 # Page 4
-## [Cirno Fumo](https://discord.com/channels/512287844258021376/1132040858343059638/1147554417038610604)
+## [Cirno Fumo](https://discord.com/channels/512287844258021376/1132040858343059638/1147554417038610604) CR: sprinkleplantz
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/804282c6-0f7d-49f4-81c5-2a1130bb177b)
-## [PH Evil Kel](https://discord.com/channels/512287844258021376/1132040858343059638/1147921010281156638)
+## [PH Evil Kel](https://discord.com/channels/512287844258021376/1132040858343059638/1147921010281156638) CR: .fluffluff
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d6dd853d-f5e7-444b-b423-428d590c1e3c)
-## [PH Evil Kel Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1148103090956943473)
+## [PH Evil Kel Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1148103090956943473) CR: its_sasha
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/9927cfca-6595-4723-b1f4-e64c8b7b5d09)
-## [Neptunia Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1148232623731261552)
+## [Neptunia Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1148232623731261552) CR: selene11
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c51cc82e-ce06-44ba-b8e0-93dcefa43cc3)
-## [Pebbles and Moon](https://discord.com/channels/512287844258021376/1132040858343059638/1148609178621968384)
+## [Pebbles and Moon](https://discord.com/channels/512287844258021376/1132040858343059638/1148609178621968384) CR: ntckv
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0c89dcec-e21f-4f73-a10c-fc99ccf3a00e)
-## [LP Capybara](https://discord.com/channels/512287844258021376/1132040858343059638/1148672731840258179)
+## [LP Capybara](https://discord.com/channels/512287844258021376/1132040858343059638/1148672731840258179) CR: its_sasha
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/098f0571-b65d-45bb-a28d-91798e8a0b83)
-## [Miku Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1152353768088801331)
+## [Miku Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1152353768088801331) CR: its_sasha
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7a9d0503-1580-4545-bc9c-dbf7b0fd9588)
-## [Floppa and Bingus](https://discord.com/channels/512287844258021376/1132040858343059638/1149371052007366686)
+## [Floppa and Bingus](https://discord.com/channels/512287844258021376/1132040858343059638/1149371052007366686) CR: its_sasha
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1f26eef8-233c-4311-9a55-5ff9e8c24a26)
-## [PH Nuclear Kel Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1149388911982936144)
+## [PH Nuclear Kel Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1149388911982936144) CR: its_sasha
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/dd8bedd5-62c3-4ce9-880e-332cc367603d)
-## [Meowskulls](https://discord.com/channels/512287844258021376/1132040858343059638/1149443128714088538)
+## [Meowskulls](https://discord.com/channels/512287844258021376/1132040858343059638/1149443128714088538) CR: sahneisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b0f5750c-0bf1-4468-a6ab-e385ef7480f8)
-## [V1 Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1149445379549560986)
+## [V1 Plushie](https://discord.com/channels/512287844258021376/1132040858343059638/1149445379549560986) CR: misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8cd23d24-a7a8-4334-87c9-69a864f70d25)
-## [T-pose Neco Arc](https://discord.com/channels/512287844258021376/1132040858343059638/1149670341174628423)
+## [T-pose Neco Arc](https://discord.com/channels/512287844258021376/1132040858343059638/1149670341174628423) CR: sprinkleplantz
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/21e4385b-f747-44a2-ba6c-62c3de053f78)
-## [Bean Cat Big/Small](https://discord.com/channels/512287844258021376/1132040858343059638/1149764186281349191)
+## [Bean Cat Big/Small](https://discord.com/channels/512287844258021376/1132040858343059638/1149764186281349191) CR: its_sasha
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c7c17441-ef7f-41c5-b092-dd0c7de7918c)
-## [Big/Small Wooloo](https://discord.com/channels/512287844258021376/1132040858343059638/1149790871483588780)
+## [Big/Small Wooloo](https://discord.com/channels/512287844258021376/1132040858343059638/1149790871483588780) CR: its_sasha
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/9bd02102-8caf-4d9f-8c60-871553274d22)
-## [Vending Machine](https://discord.com/channels/512287844258021376/1132040858343059638/1150072789689184338)
+## [Vending Machine](https://discord.com/channels/512287844258021376/1132040858343059638/1150072789689184338) CR: michuklon
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c46d0540-b9e9-4f68-9bed-ea95a3652c83)
 
 ### [Page 3](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2003.md)  | [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2005.md)
