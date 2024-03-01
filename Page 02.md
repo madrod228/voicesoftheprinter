@@ -1,33 +1,33 @@
 # Page 2
-## [Ratshot Box and Bullet](https://discord.com/channels/512287844258021376/1132040858343059638/1137678256217268224) CR: hunterskye2105
+## [Ratshot Box and Bullet](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/Ratshot.rar) CR: hunterskye2105
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/26e74ce1-f17e-41f8-be5a-47af562b6567)
-## [Obamid](https://discord.com/channels/512287844258021376/1132040858343059638/1138171564089692190) CR: deady42
+## [Obamid](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/obamid.rar) CR: deady42
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/905bfe49-6534-43e4-acfc-35c5ec0bc99d)
-## [Joe Bidome](https://discord.com/channels/512287844258021376/1132040858343059638/1138198479206887605) CR: deady42
+## [Joe Bidome](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/joebidome.rar) CR: deady42
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/62967146-1307-45f3-aad7-4977584db8db)
-## [Donald Trumpet](https://discord.com/channels/512287844258021376/1132040858343059638/1139280354105098301) CR: deady42
+## [Donald Trumpet](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/donaldtrumpet.rar) CR: deady42
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/761bf7ed-d17b-43ee-bc58-e5f3c17b1389)
-## [Jerma Cardboard Cutout](https://discord.com/channels/512287844258021376/1132040858343059638/1139910084739203233) CR: tammasun
+## [Jerma Cardboard Cutout](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/jerma.rar) CR: tammasun
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/27b0eb6c-6aaa-44b3-9ce1-b4acca1bff31)
-## [Folding Table](https://discord.com/channels/512287844258021376/1132040858343059638/1140445563167449088) CR: tammasun
+## [Folding Table](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/folding_table.rar) CR: tammasun
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/fbeceb1f-ce59-4377-b384-b21a2453366f)
-## [Another Jerma Cutout](https://discord.com/channels/512287844258021376/1132040858343059638/1140549508053336116) CR: sammfatcat
+## [Another Jerma Cutout](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/jermacreep.rar) CR: sammfatcat
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1f29a386-f78a-44b5-9af4-1c2968fcd753)
-## [Minecraft Steve](https://discord.com/channels/512287844258021376/1132040858343059638/1140632940653576192) Can swap out skins will only do base layer no outer layers CR: deady42
+## [Minecraft Steve](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/steve.rar) Can swap out skins will only do base layer no outer layers CR: deady42
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8c6cadd0-b706-4603-8f5b-6e4018e84648)
-## [Kerfus Mugs](https://discord.com/channels/512287844258021376/1132040858343059638/1141142914135752816) and [Red Alt.](https://discord.com/channels/512287844258021376/1132040858343059638/1166006686297894942) CR: tammasun
+## [Kerfus Mugs](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/Kerfus%20Mugs.rar) CR: tammasun
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5fcf5dfa-2cc2-4b36-a3bd-cd749d3811ac)
-## [Gnome](https://discord.com/channels/512287844258021376/1132040858343059638/1141412026653081685) CR: evactouch
+## [Gnome](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/Gnome.rar) CR: evactouch
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/79c927cd-a72d-414d-a5c2-f9de561a8b67)
-## [Broken Kiryu Cutout](https://discord.com/channels/512287844258021376/1132040858343059638/1141446578708688997) CR: anonymousmeat
+## [Kiryu Cutout](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/kazzythedragon.rar) CR: anonymousmeat
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d2f0b7a1-9b25-4cbf-a6e9-c9d38867ff34)
-## [HL1 Gman](https://discord.com/channels/512287844258021376/1132040858343059638/1141531559556559001) CR: elliot.d
+## [HL1 Gman](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/gman.rar) CR: elliot.d
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/36d4fdac-bab4-4839-a4d8-38b9eaea9d6f)
-## [PH Kel](https://discord.com/channels/512287844258021376/1132040858343059638/1141705576674512926) CR: misskatsune
+## [PH Kel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/Dr_Kel.rar) CR: misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6dd02245-6213-4846-89ff-c3b6479eb8af)
-## [Minecraft Argem](https://discord.com/channels/512287844258021376/1132040858343059638/1141705690373689434) CR: misskatsune
+## [Minecraft Argem](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/Minecraft%20Argem.rar4) CR: misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/03e1ac90-4610-4e03-a8c5-3a14ccd354f1)
-## [Monster Energy Can + Crushed Can](https://discord.com/channels/512287844258021376/1132040858343059638/1141755497809203231) and [Alt Crushed Can](https://discord.com/channels/512287844258021376/1132040858343059638/1141783221797929094) CR: anonymousmeat
+## [Monster Energy Can + Crushed Cans](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%202/Monster%20Energy%20Cans.rar) CR: anonymousmeat
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ae2f4a09-8c17-42cd-a2fc-e23f44580b71) ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ab1b3360-66cf-41ea-861e-5f201ab1f980)
 
 ### [Page 1](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2001.md)  | [Page 3](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2003.md)
