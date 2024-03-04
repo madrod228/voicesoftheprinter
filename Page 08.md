@@ -21,7 +21,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b6f27ebd-a310-4d67-9923-1ed3a23c2228)
 ## [Matpat Cutout](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%208/matpat_cutout_by_auradacella.rar) CR: auradacella
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/19e16639-9c98-4851-972d-04ff0a3e5a39)
-## [HL2 Stalker]https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%208/HL2_Stalker.rar) CR: sahnisttoll
+## [HL2 Stalker](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%208/HL2_Stalker.rar) CR: sahnisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/177c79c2-9c80-4052-b51b-391002222a96)
 ## [Skull Emoji](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%208/Emoji_Skull.rar) CR: sahneisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a39806ec-710c-4be1-bede-dfa9e2d31225)
