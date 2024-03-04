@@ -17,9 +17,8 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7eaa313c-c76d-4ff3-89ab-dfcf461f426a)
 ## [Stellar Kel and Stellar Purp Argem](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%207/Stellar%20Kel%20and%20Argem.rar) CR: nik_l0l
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0bf8413a-8922-4fbc-ab50-21455b778216)![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/98a7b5f7-4c27-44ff-be8b-09489197a020)
-## [Argem smoking a blunt](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%207/Argemia%20Doobie%20Normal%20and%20Alt.rar)
-)  CR: its_sasha
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/eecfd53a-bee2-4058-8a60-104884a64d47)
+## [Argem smoking a blunt and Weed Alt](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%207/Argemia%20Doobie%20Normal%20and%20Alt.rar) CR: its_sasha
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/eecfd53a-bee2-4058-8a60-104884a64d47) ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/59ca80f5-3a4d-49b4-a232-4933e0150994)
 ## [Gorilla Tag Statue](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%207/Gorilla%20Tag%20Statue_by_a_deleted_user.rar) CR: Creator has deleted their account
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/dde609a2-5025-49e0-8d49-27fb955e2fc3)
 ## [Shelf](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%207/Shelf_by_nik_l0l.rar) CR: nik_l0l
