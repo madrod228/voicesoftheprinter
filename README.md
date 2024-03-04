@@ -45,7 +45,7 @@ madrod228 started this specific repo but im passing it over to killerblade555 si
 
 killerblade555 has done mostly everything else
 
-Sleep Deprived Gaming has done pages 26-29
+Sleep Deprived Gaming has done pages 26-32
 
 Sahneisttoll for the VOTV Printer Guide
 
