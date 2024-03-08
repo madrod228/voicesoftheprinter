@@ -12,7 +12,7 @@
 ## [LP Capybara](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%204/capybara.rar) CR: its_sasha
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/098f0571-b65d-45bb-a28d-91798e8a0b83)
 ## [Miku Plushie](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%204/mikuplush.rar) CR: its_sasha
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7a9d0503-1580-4545-bc9c-dbf7b0fd9588)
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0cd02062-b6ce-40ce-807c-fe55eb68539b)
 ## [Floppa and Bingus](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%204/Floppa%20and%20Bingus.rar) CR: its_sasha
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1f26eef8-233c-4311-9a55-5ff9e8c24a26)
 ## [PH Nuclear Kel Plushie](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%204/nuclearkelplush.rar) CR: its_sasha
