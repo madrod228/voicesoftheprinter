@@ -30,4 +30,4 @@
 ## [Skibidi Ariral](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%205/skibidity_arrial.rar) CR: sahneisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b264aa57-073c-4837-a928-db0828e26eaa)
 
-### [Page 4](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2004.md)  |  [Page 6](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2006.md)
+### [Page 4](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20004.md)  |  [Page 6](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20006.md)
