@@ -7,7 +7,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/90a5d5b7-008a-4a2b-a66c-3e3d3d29d7bd)
 ## [Gray Bunny](https://discord.com/channels/512287844258021376/1132040858343059638/1171936560900472925) CR: mycoolaccount FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4f2cb191-76db-45fd-9c7c-bbfd58988115)
-## [Wooden Shelf](https://discord.com/channels/512287844258021376/1132040858343059638/1172020884853243975) CR: mycoolaccount
+## [Wooden Shelf](https://discord.com/channels/512287844258021376/1132040858343059638/1172020884853243975) CR: mycoolaccount FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c28c8a85-b0e8-47b5-8048-88bfbd65e8ea)
 ## [S4 League Plasma Sword](https://discord.com/channels/512287844258021376/1132040858343059638/1172098473995280385) CR: sahneisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a599dafb-8984-4fe4-a1ed-09efa5422df4)
