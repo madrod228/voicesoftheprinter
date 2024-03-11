@@ -30,4 +30,4 @@
 ## [Basking Shark](https://discord.com/channels/512287844258021376/1132040858343059638/1170004130375401514) CR: dr.bob.
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/46091ca2-3e36-4570-9b64-dda3380a6a6b)
 
-### [Page 13](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2013.md)  |  [Page 15](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2015.md)
+### [Page 13](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20013.md)  |  [Page 15](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20015.md)
