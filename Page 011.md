@@ -30,4 +30,4 @@
 ## [Niko (Oneshot)](https://discord.com/channels/512287844258021376/1132040858343059638/1167159442652008549) CR: _pockpock
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3399a248-2a9f-43f9-b3e1-fcaae108b870)
 
-### [Page 10](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2010.md)  | [Page 12](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2012.md)
+### [Page 10](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20010.md)  | [Page 12](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20012.md)
