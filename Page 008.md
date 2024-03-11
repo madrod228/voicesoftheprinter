@@ -30,4 +30,4 @@
 ## [Dark Voyager](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%208/Dark_Voyager_Miniature_V1_by_lt.col.pk.rar) CR: lt.col.pk
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d42cce1f-7c1d-4997-b66f-37d4855ac9f3)
 
-### [Page 7](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2007.md)  | [Page 9](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2009.md)
+### [Page 7](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20007.md)  | [Page 9](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20009.md)
