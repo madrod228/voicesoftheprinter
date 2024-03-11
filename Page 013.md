@@ -23,9 +23,9 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/155c625f-35df-466f-b37f-faccb0d079b2)
 ## [Reavers (Megaman Legends)](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20013/Reavers(Megaman%20Legends)_by_nsd_.rar) CR: nsd_
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1316a3b7-5e8c-4a29-bad3-81749b7f84ce)
-## [Hoshino Swimsuit Sleeping](https://discord.com/channels/512287844258021376/1132040858343059638/1168307044969873528) CR: sahneisttoll
+## [Hoshino Swimsuit Sleeping](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20013/BA_Hoshino_Swiumsuit_Sleep.rar) CR: sahneisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d444c88c-d023-495d-a7f1-82d9cfa2d598)
-## [Jorji]
+## [Jorji and Sergiu](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Archive/Page%20013/Jorji%20and%20Sergiu.rar) CR:ntckv
 ## [Saur](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Archive/Page%20013/SAUR(ATOMEGA)_by_ntckv.rar) CR: ntckv
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7c2287fa-b575-4d34-953c-68b995d5c360)
 ## [Jax](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20013/Jax_by_monique_santificer.rar) CR: monique_santificer
