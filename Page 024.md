@@ -30,4 +30,4 @@
 ## [Angled Drive Rack Holder](https://discord.com/channels/512287844258021376/1132040858343059638/1192405149486952489)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1e85c63d-6162-4cc4-9c30-207b74a0ef2f)
 
-### [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2023.md)  | [Page 25](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2025.md)
+### [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20023.md)  | [Page 25](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20025.md)
