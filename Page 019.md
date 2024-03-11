@@ -30,4 +30,4 @@
 ## [Customizable Books](https://discord.com/channels/512287844258021376/1132040858343059638/1177360639614783549)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/66660def-882c-407a-8813-aa4146397705)
 
-### [Page 18](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2018.md)  | [Page 20](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2020.md)
+### [Page 18](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20018.md)  | [Page 20](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20020.md)
