@@ -30,4 +30,4 @@
 ## [N](https://discord.com/channels/512287844258021376/1132040858343059638/1202021390795145226)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/4ecd0b71-064d-41d3-b49e-1ba2909d0f9c)
 
-### [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2027.md)  | [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2029.md)
+### [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20027.md)  | [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20029.md)
