@@ -1,0 +1,33 @@
+# Page 13
+## [Lucifer](https://discord.com/channels/512287844258021376/1132040858343059638/1167916859706839101) CR: dr.bob.
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f0cc872b-451c-4621-b8d7-c40adc8e3c38)
+## [Melusine](https://discord.com/channels/512287844258021376/1132040858343059638/1167940600700616864) Able to hold objects | CR: lespoog
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/08bf9f58-2905-4b03-a99f-ebe4353a1a89)![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c33ed000-eb05-4c8e-9ce2-c8ac82e801d8)
+## [UK Sentry](https://discord.com/channels/512287844258021376/1132040858343059638/1167944457837088778) CR: sahneisttoll
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b646e404-076b-4a47-a15f-56c743d0bc77)
+## [Aegis and Vexcalibur (Destiny)](https://discord.com/channels/512287844258021376/1132040858343059638/1167973321971867760) CR: kebasnaek
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2ab7a7b9-4cc6-4466-a1cf-335770ffb551)
+## [Printable Argems](https://discord.com/channels/512287844258021376/1132040858343059638/1167974295717298327) CR: kebasnaek
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/bada6ea4-e157-49f4-8a89-35344d683fee)![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f9655396-464d-4729-8c6b-13d88c538aad)![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0e97f2d8-54f7-409a-8f4b-20023bcedc82)
+## [Doug](https://discord.com/channels/512287844258021376/1132040858343059638/1168060726313746523) CR: jettank123
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c6e6c1f5-4b2e-4762-b70e-459bfeace29e)
+## [SMB Wonder Talking Flower](https://discord.com/channels/512287844258021376/1132040858343059638/1168143427632906250) CR: misskatsune
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ead7d144-4ecc-44f3-8499-d9d56cebe3f7)
+## [Pancakes](https://discord.com/channels/512287844258021376/1132040858343059638/1168230922445918280) CR: _pockpock
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d293ea4c-b920-4f86-94c2-3a5d91b5ce50)
+## [Hoshino EX Skill](https://discord.com/channels/512287844258021376/1132040858343059638/1168237923439755415) CR: sahneisttoll
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/61c9c48c-7f63-4010-ba29-a5f0aa2b9a01)
+## [Niko holding stuff](https://discord.com/channels/512287844258021376/1132040858343059638/1168238547497664512) CR: _pockpock
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/fcba3717-3b32-4070-a48c-4ca9a78d6005)
+## [UK Coins](https://discord.com/channels/512287844258021376/1132040858343059638/1168246558228217887) CR: jettank123
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/155c625f-35df-466f-b37f-faccb0d079b2)
+## [Reavers (Megaman Legends)](https://discord.com/channels/512287844258021376/1132040858343059638/1168263245434454216) CR: nsd_
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1316a3b7-5e8c-4a29-bad3-81749b7f84ce)
+## [Hoshino Swimsuit Sleeping](https://discord.com/channels/512287844258021376/1132040858343059638/1168307044969873528) CR: sahneisttoll
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d444c88c-d023-495d-a7f1-82d9cfa2d598)
+## [Jorji and Saur](https://discord.com/channels/512287844258021376/1132040858343059638/1168522162072715315) CR: ntckv
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/fff933bf-dfbb-4c8b-bf3a-3c742a194575)![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7c2287fa-b575-4d34-953c-68b995d5c360)
+## [Jax](https://discord.com/channels/512287844258021376/1132040858343059638/1168600743062798377) CR: monique_santificer
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/dd29d5a1-7fb8-4573-ba23-144d744e7d7c)
+
+### [Page 12](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20012.md)  | [Page 14](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20014.md)
