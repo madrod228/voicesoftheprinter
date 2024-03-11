@@ -26,6 +26,7 @@
 ## [Hoshino Swimsuit Sleeping](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20013/BA_Hoshino_Swiumsuit_Sleep.rar) CR: sahneisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d444c88c-d023-495d-a7f1-82d9cfa2d598)
 ## [Jorji and Sergiu](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Archive/Page%20013/Jorji%20and%20Sergiu.rar) CR:ntckv
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0f13657c-2a6f-4da2-911d-6aa1663bf0a3)
 ## [Saur](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Archive/Page%20013/SAUR(ATOMEGA)_by_ntckv.rar) CR: ntckv
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7c2287fa-b575-4d34-953c-68b995d5c360)
 ## [Jax](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20013/Jax_by_monique_santificer.rar) CR: monique_santificer
