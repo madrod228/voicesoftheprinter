@@ -30,4 +30,4 @@
 ## [Vending Machine](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%204/vendingmachine.rar) CR: michuklon
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c46d0540-b9e9-4f68-9bed-ea95a3652c83)
 
-### [Page 3](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2003.md)  | [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2005.md)
+### [Page 3](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20003.md)  | [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20005.md)
