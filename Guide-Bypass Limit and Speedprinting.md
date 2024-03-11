@@ -4,7 +4,7 @@ The printer in VOTV has Strict limits to what can be printed with the printer. I
 
 This how every is easily bypassble, and will save you alot of time if you're printing larger complex models. You will need to this model to help you with this trick.
 
-### [The Stick](https://discord.com/channels/512287844258021376/1132040858343059638/1187260278937755678)
+### [The Stick](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Bypass-Speedprint/Stick.rar)
 
 This is shrimply an untextured Stick. It only takes a little bit to print, and it's large enough for you to see and grab it. We'll be using this to show you how to bypass the limits and speed of the printer.
 
