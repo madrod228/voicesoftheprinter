@@ -1,33 +1,35 @@
 # Page 20
-## [Raiden MGS2](https://discord.com/channels/512287844258021376/1132040858343059638/1177397353985101875)
+## [Raiden MGS2](https://discord.com/channels/512287844258021376/1132040858343059638/1177397353985101875) CR: killerblade555
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f15181bc-d614-4846-8d34-00feb483e7ee)
-## [Alien Hat](https://discord.com/channels/512287844258021376/1132040858343059638/1177762928154378370)
+## [Alien Hat](https://discord.com/channels/512287844258021376/1132040858343059638/1177762928154378370) CR: cleaninglynx
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/604f7e11-f320-477e-97fe-625336638f6b)
-## [SCP-650 3 poses](https://discord.com/channels/512287844258021376/1132040858343059638/1178127005821173860)
+## [SCP-650 3 poses](https://discord.com/channels/512287844258021376/1132040858343059638/1178127005821173860) CR: killerblade555
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b72f7f52-17c9-4698-bb05-bd810ab070f8)![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5cde0cfc-f5ea-4a1c-a5ec-b41a2ce31b9f)![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/35f59124-08e3-4c21-bd49-41ed951c4862)
-## [Blanka-chan](https://discord.com/channels/512287844258021376/1132040858343059638/1178138106231267408)
+## [Blanka-chan](https://discord.com/channels/512287844258021376/1132040858343059638/1178138106231267408) CR: technocore
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2805b10b-c22d-4e95-b513-ec2858f74fd3)
-## [Banjo](https://discord.com/channels/512287844258021376/1132040858343059638/1178188916847824976)
+## [Banjo](https://discord.com/channels/512287844258021376/1132040858343059638/1178188916847824976) CR: technocore
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/9af87586-337e-440b-a175-ff02eef92cd1)
-## [Beast Angler Fish](https://discord.com/channels/512287844258021376/1132040858343059638/1178206917512921098)
+## [Beast Angler Fish](https://discord.com/channels/512287844258021376/1132040858343059638/1178206917512921098) CR: technocore
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/e443302c-b84c-4f1d-bb5c-5f1911ce90a8)
-## [IDKY's Fanart Kel Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1178254482816106546)
+## [IDKY's Fanart Kel Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1178254482816106546) CR: transscrina
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6e99faa2-16db-4247-b14b-5a8eb035f357)
-## [People Playground Human Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1178505654328119367)
+## [People Playground Human Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1178505654328119367) CR: transscrina
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/86798284-c95c-4688-a20d-298b1036799b)
-## [Deimos](https://discord.com/channels/512287844258021376/1132040858343059638/1205203096180101211)
+## [Deimos](https://discord.com/channels/512287844258021376/1132040858343059638/1205203096180101211) CR: sleepdeprivedgaming_88431
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/23872381-cd43-4c73-997e-1e8cdd0ce182)
-## [War of the Worlds book](https://discord.com/channels/512287844258021376/1132040858343059638/1179273675682357300)
+## [War of the Worlds book](https://discord.com/channels/512287844258021376/1132040858343059638/1179273675682357300) CR: ujmeade
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7ca90f63-9b9c-4408-be42-b723aeec6c9c)
-## [Wolfgang Bowls SM/MED/JUM](https://discord.com/channels/512287844258021376/1132040858343059638/1179315359535341588)
+## [Wolfgang Bowls SM/MED/JUM](https://discord.com/channels/512287844258021376/1132040858343059638/1179315359535341588) CR: .fluffluff
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/973e1e02-0d2b-404d-b39b-bf5687d47fad)
-## [SciFi books](https://discord.com/channels/512287844258021376/1132040858343059638/1179889930063839405)
+## [SciFi books](https://discord.com/channels/512287844258021376/1132040858343059638/1179889930063839405) CR: joebama3237
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/9d401c03-ef26-4cbb-8c95-be2057365dff)
-## [Floppy Disk Collection](https://discord.com/channels/512287844258021376/1132040858343059638/1180038811791667220)
+## [Floppy Disk Collection](https://discord.com/channels/512287844258021376/1132040858343059638/1180038811791667220) CR: joebama3237
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/96ccac0b-cccc-4652-8ded-fbdcbb18d642)
-## [Small Cabinet](https://discord.com/channels/512287844258021376/1132040858343059638/1180495561229607013)
+## [Bodsworth Cat](https://discord.com/channels/512287844258021376/1132040858343059638/1179924061179105412) CR: Unknown Creator
+(image requried)
+## [Small Cabinet](https://discord.com/channels/512287844258021376/1132040858343059638/1180495561229607013) CR: mycoolaccount FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/64b29b76-2ef6-4b3c-8e1a-cd535bb023ff)
-## [Non Hypno Boykisster](https://discord.com/channels/512287844258021376/1132040858343059638/1180667643309604925)
+## [Non Hypno Boykisster](https://discord.com/channels/512287844258021376/1132040858343059638/1180667643309604925) CR: ujmeade sahneisttoll FIXED (same model different texture)
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/dda4759d-da76-4ee7-870e-d56fc8edcb24)
 
 ### [Page 19](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20019.md)  | [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20021.md)
