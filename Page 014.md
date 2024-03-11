@@ -15,9 +15,9 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b3e2b4d9-91e9-41d4-bb78-e43685df5f1f)
 ## [Balloonicorn](https://discord.com/channels/512287844258021376/1132040858343059638/1169374788184186951) CR: dr.bob.
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b1c0aa1b-7b38-4756-9401-bca8426129b2)
-## [Raymond Maid](https://discord.com/channels/512287844258021376/1132040858343059638/1169388947160449134) CR: marty_mcfly8770
+## [Raymond Maid](https://discord.com/channels/512287844258021376/1132040858343059638/1169388947160449134) CR: marty_mcfly8770 FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d349a8bd-f506-4c63-9cfa-f157471119f5)
-## [Kel Snek](https://discord.com/channels/512287844258021376/1132040858343059638/1169597780218621993) CR: its_sasha
+## [Kel Snek](https://discord.com/channels/512287844258021376/1132040858343059638/1169597780218621993) CR: its_sasha FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8739814d-c740-4283-94a0-819e0ccaff09)
 ## [Home Shrine (Sky)](https://discord.com/channels/512287844258021376/1132040858343059638/1169643325410770986) CR: ntckv
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f8de0b37-9e2a-4948-a1d1-50942d2a5c59)
