@@ -30,4 +30,4 @@
 ## [Pool Chair](https://discord.com/channels/512287844258021376/1132040858343059638/1204197586928533554)
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f2269599-8498-4fb6-880c-aad115a1c3cd)
 
-### [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2028.md)  | [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2030.md)
+### [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20028.md)  | [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20030.md)
