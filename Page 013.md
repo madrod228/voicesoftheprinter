@@ -30,4 +30,4 @@
 ## [Jax](https://discord.com/channels/512287844258021376/1132040858343059638/1168600743062798377) CR: monique_santificer
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/dd29d5a1-7fb8-4573-ba23-144d744e7d7c)
 
-### [Page 12](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2012.md)  | [Page 14](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2014.md)
+### [Page 12](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20012.md)  | [Page 14](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20014.md)
