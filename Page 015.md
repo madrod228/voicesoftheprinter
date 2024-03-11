@@ -21,7 +21,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8a18a4fe-8193-4a6b-88e6-c1048eca9f0a)
 ## [Airy](https://discord.com/channels/512287844258021376/1132040858343059638/1171471923004313630) CR: ntckv
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a5defd76-c973-4482-979d-895aadf0751d)
-## [Teddy](https://discord.com/channels/512287844258021376/1132040858343059638/1171504158436765757) CR: mycoolaccount
+## [Teddy](https://discord.com/channels/512287844258021376/1132040858343059638/1171504158436765757) CR: mycoolaccount FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8424710e-00d5-4188-9ffe-1240d94e5e6a)
 ## [Ichthyosaur](https://discord.com/channels/512287844258021376/1132040858343059638/1171720373130252318) CR: spacemoonbear
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8fb8babe-2724-4055-ade2-2927ab6283a0)
