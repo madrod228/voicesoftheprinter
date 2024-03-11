@@ -23,4 +23,4 @@
 ## [D20 Dies](https://discord.com/channels/512287844258021376/1132040858343059638/1210155046554177586)
 ![20240222-012256776-VotV-Win64-Shipping](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/b58715d3-7bf0-4496-bed4-d07f0d0c9ff8)
 
-### [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2031.md)  | [Page 33](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2033.md)
+### [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20031.md)  | [Page 33](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20033.md)
