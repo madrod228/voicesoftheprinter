@@ -31,4 +31,4 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0821f37c-a8e1-4643-a847-f64fc5ddc846)
 
 
-### [Page 22](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2022.md)  | [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2024.md)
+### [Page 22](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20022.md)  | [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20024.md)
