@@ -30,4 +30,4 @@
 ## [Hoarding Bug](https://discord.com/channels/512287844258021376/1132040858343059638/1194965086620626994) can hold objects
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/42e5f830-9ab6-48b0-856b-d28b0692d006)
 
-### [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2024.md)  | [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%2026.md)
+### [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20024.md)  | [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20026.md)
