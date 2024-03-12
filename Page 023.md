@@ -1,21 +1,21 @@
 # Page 23
 ## [Small Whiskey Bottle](https://discord.com/channels/512287844258021376/1132040858343059638/1188316670025015306) deleted
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a51d1a33-1876-4413-a321-1a2141cb1a90)
-## [Weeping Angel](https://discord.com/channels/512287844258021376/1132040858343059638/1188338607421935676) CR: boomk1ng
+## [Weeping Angel](https://discord.com/channels/512287844258021376/1132040858343059638/1188338607421935676) CR: boomk1ng FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/598b6b45-acbf-4526-b997-49ef70172ffd)
-## [Houshou Marine Figure](https://discord.com/channels/512287844258021376/1132040858343059638/1188694159276638278) CR: boomk1ng
+## [Houshou Marine Figure](https://discord.com/channels/512287844258021376/1132040858343059638/1188694159276638278) CR: boomk1ng FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c6b21437-a401-480a-b36a-916d3a7863b3)
-## [Mori Calliope Figure](https://discord.com/channels/512287844258021376/1132040858343059638/1189067066813198406) CR: boomk1ng
+## [Mori Calliope Figure](https://discord.com/channels/512287844258021376/1132040858343059638/1189067066813198406) CR: boomk1ng FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ccd0c0da-c071-4dcc-aac7-a77ca0191516)
-## [Tsukumo Sana Figure](https://discord.com/channels/512287844258021376/1132040858343059638/1189067310250594325) CR: boomk1ng
+## [Tsukumo Sana Figure](https://discord.com/channels/512287844258021376/1132040858343059638/1189067310250594325) CR: boomk1ng FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3695fe08-15cc-46c9-85bf-c0779de39693)
 ## [Smol Ame](https://discord.com/channels/512287844258021376/1132040858343059638/1189119073351639050) CR: killerblade555
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/14ee6197-f5a5-4247-ac32-7c66aa8af2c8)
 ## [Zed](https://discord.com/channels/512287844258021376/1132040858343059638/1189273934491824179) CR: sleepdeprivedgaming_88431
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d187679f-80a8-44f2-8aea-fffc9f646e15)
-## [Squeeb Fauna](https://discord.com/channels/512287844258021376/1132040858343059638/1189461975420375110) CR: boomk1ng
+## [Squeeb Fauna](https://discord.com/channels/512287844258021376/1132040858343059638/1189461975420375110) CR: boomk1ng FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/647ae953-8db3-4924-ac29-71f903a42ff7)
-## [Shiori Novella Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1189478646503706624) CR: boomk1ng
+## [Shiori Novella Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1189478646503706624) CR: boomk1ng FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/41bbfa1a-1b0f-463b-b126-ec9c540ca4f2)
 ## [Lethal Company Airhorn](https://discord.com/channels/512287844258021376/1132040858343059638/1189519968702824498) CR: sleepdeprivedgaming_88431
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2a8c6f25-255c-46ec-9925-aa7949c7bb61)
