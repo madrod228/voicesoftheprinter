@@ -1,12 +1,6 @@
 # Page 16
 ## [Dankpods Sandpaper](https://discord.com/channels/512287844258021376/1132040858343059638/1171847631350267986) CR: tammasun
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/23dbdfa0-9789-4a9d-a440-4a5ce00eeeec)
-## [Frog Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1171849230332203038) CR: mycoolaccount FIXED
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4cf19b55-2bd3-46ff-9504-16160f0373f4)
-## [Kangaroo](https://discord.com/channels/512287844258021376/1132040858343059638/1171933808770175056) CR: mycoolaccount FIXED
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/90a5d5b7-008a-4a2b-a66c-3e3d3d29d7bd)
-## [Gray Bunny](https://discord.com/channels/512287844258021376/1132040858343059638/1171936560900472925) CR: mycoolaccount FIXED
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4f2cb191-76db-45fd-9c7c-bbfd58988115)
 ## [Wooden Shelf](https://discord.com/channels/512287844258021376/1132040858343059638/1172020884853243975) CR: mycoolaccount FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c28c8a85-b0e8-47b5-8048-88bfbd65e8ea)
 ## [S4 League Plasma Sword](https://discord.com/channels/512287844258021376/1132040858343059638/1172098473995280385) CR: sahneisttoll
