@@ -7,7 +7,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a599dafb-8984-4fe4-a1ed-09efa5422df4)
 ## [Black Mesa Bullsquid](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20016/Black%20Mesa%20Bullsquid%20by%20spacemoonbear.rar) CR: spacemoonbear
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0c83e55d-15f4-4165-80dd-0f240fc88d2d)
-## [Soltomia](hhttps://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20016/Soltomia_Figure.rar) CR: misskatsune
+## [Soltomia](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20016/Soltomia_Figure.rar) CR: misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/23116264-fef4-40e4-b0fa-300daf3ffd24)
 ## [Kaida](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20016/Kaida%20by%20kaidathecat.rar) CR: kaidathecat
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a6f65332-0b38-4947-a987-6899bbd890af)
