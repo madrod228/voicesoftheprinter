@@ -23,7 +23,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a5defd76-c973-4482-979d-895aadf0751d)
 ## [Teddy](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20015/Teddy%20by%20mycoolaccount.rar) CR: mycoolaccount FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8424710e-00d5-4188-9ffe-1240d94e5e6a)
-## [Ichthyosaur](https://discord.com/channels/512287844258021376/1132040858343059638/1171720373130252318) CR: spacemoonbear
+## [Ichthyosaur](https://cdn.discordapp.com/attachments/1132040858343059638/1217181789194551428/Ichthyosaur_by_spacemoonbear.rar?ex=660317e0&is=65f0a2e0&hm=d11bc25ad412a3f9bcee20efd6580f296460e93d3530560be893421ea64f9870&) CR: spacemoonbear
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8fb8babe-2724-4055-ade2-2927ab6283a0)
 ## [Mel's Portal Gun](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20015/Mel's%20Portal%20Gun%20by%20spacemoonbear.rar) CR: spacemoonbear
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/20f422ee-7c98-4eeb-897c-6eaf6ecb7fc8)
