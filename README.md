@@ -4,7 +4,7 @@ As of Update D07 most prints are now broken with the new collision system. We wi
 
 
 # LOOK HERE
-![artworks-Uii8SMJvNPxy8ePA-romBoQ-t500x500](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3581fed9-953e-46c4-a7c0-6ab447771280)
+![artworks-Uii8SMJvNPxy8ePA-romBoQ-t500x500](https://github.com/madrod228/voicesoftheprinter/assets/9602000/93612c5d-ecf8-44c9-bb14-235805336cf2)
 # LOOK HERE
 
 
