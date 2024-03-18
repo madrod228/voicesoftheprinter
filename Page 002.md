@@ -25,7 +25,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/36d4fdac-bab4-4839-a4d8-38b9eaea9d6f)
 ## [PH Kel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Dr_Kel.rar) CR: misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6dd02245-6213-4846-89ff-c3b6479eb8af)
-## [Minecraft Argem](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Minecraft%20Argem.rar4) CR: misskatsune
+## [Minecraft Argem](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Minecraft%20Argem.rar) CR: misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/03e1ac90-4610-4e03-a8c5-3a14ccd354f1)
 ## [Monster Energy Can + Crushed Cans](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Monster%20Energy%20Cans.rar) CR: anonymousmeat
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ae2f4a09-8c17-42cd-a2fc-e23f44580b71) ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ab1b3360-66cf-41ea-861e-5f201ab1f980)
