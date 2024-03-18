@@ -66,5 +66,5 @@
 
 ### [How to create PBRs by Xiphi](https://www.youtube.com/watch?v=1knCUpq7Yz0&t)
 ![dsad](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d2af6236-e5d3-4aae-8e22-75eccd2d1ea4)
-### [How to make 3D Prints for VOTV by Xiphi](https://www.youtube.com/watch?v=xKyMyZzdjSk)
+### [How to make 3D Prints for VOTV by Xiphi](https://www.youtube.com/watch?v=aL-fLuwMXTo)
 ![hq720](https://github.com/madrod228/voicesoftheprinter/assets/9602000/595308a8-4e09-4141-8ae6-5996a2a969bc)
