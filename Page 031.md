@@ -14,7 +14,7 @@
 ![Screenshot (868)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/6a7b3b0e-6f0c-429f-8155-afa670b852d9)
 ## [Goro Majima](https://discord.com/channels/512287844258021376/1132040858343059638/1207185327786164284) CR: yishi77
 ![Screenshot (882)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/56126fdb-1148-408f-a176-b6e94d40a7ff)
-## [Sleep's Ultrakill Models 2023-2024](https://discord.com/channels/512287844258021376/1132040858343059638/1208247254205333505) CR: sleepdeprivedgaming_88431
+## [Sleep's Ultrakill Models 2023-2024](https://discord.com/channels/512287844258021376/1132040858343059638/1208247254205333505) CR: sleepdeprivedgaming_88431 FIXED
 ![Screenshot (575)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/9cf978d4-10f7-4c9f-ab48-a76ffc8ea98b)
 ## [Something Wicked](https://discord.com/channels/512287844258021376/1132040858343059638/1207842035969691688) CR: sleepdeprivedgaming_88431
 ![Screenshot (889)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/ab651f74-1497-4d21-ac4d-e820bba0c404)
