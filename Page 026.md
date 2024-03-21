@@ -28,7 +28,7 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/86c46ccf-85d8-4f8a-a2ef-b3e89af4d557)
 ## [Cauldron](https://discord.com/channels/512287844258021376/1132040858343059638/1197107605596807240) CR: lucypheral
 ![Screenshot (607)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/c01e75d8-0f81-4280-9bd7-ddd3d1a8710f)
-## [Kobold](https://discord.com/channels/512287844258021376/1132040858343059638/1197236715518177422) CR: vadimoo
+## [Kobold](https://discord.com/channels/512287844258021376/1132040858343059638/1197236715518177422) CR: vadimoo FIXED
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/bc090a16-bfe0-4a39-ab6b-d04a1f48bd9b)
 
 
