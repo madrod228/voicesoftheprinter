@@ -1,7 +1,7 @@
 # Page 22
 ## [Replikas (Signalis)](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/Signalis_replikas.rar) CR: novaco
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b0fc72d8-97a5-425b-ae62-e5388bb65be9)
-## [Tora (XB2)](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/tora.rar) CR: boomk1ng FIXED
+## [Tora (XB2)](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/tora.rar) CR: boomk1ng
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/939ed0af-ab24-4531-beca-e4561e1fed65)
 ## [Shrimp](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/Shrimp.rar) CR: killerblade555
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/93e9ff9a-52df-4abc-8a05-80b2f88dba4d)
@@ -21,7 +21,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8f9554e7-e3d4-4063-9283-d5c2e59bbb74)
 ## [Xmas Miku](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/miku_xmas.rar) CR: .jhfly
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/24c52c4a-840f-4f69-9332-a75932a8cb79)
-## [Xmas Tree 2](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/miku_xmas.rar) CR: mycoolaccount FIXED
+## [Xmas Tree 2](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/miku_xmas.rar) CR: mycoolaccount 
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/15f00bf7-9f4f-472a-a2b1-e5fa5d74fe2b)
 ## [Niko Plush](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/NikoPlush.rar) CR: _pockpock
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/53b063df-7344-4c91-ac6e-dcdde1c45c4d)
