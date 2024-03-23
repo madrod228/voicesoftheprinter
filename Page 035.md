@@ -29,3 +29,5 @@
 ![tammasun soltomia](https://github.com/madrod228/voicesoftheprinter/assets/9602000/37301da0-b628-4242-8fdb-73c1ebec5ed1)
 ## [Vaporeon](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20035/vaporeon.zip) CR: cobaltriley
 ![Vaporeon cobaltriley](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0470519a-1260-4b92-bb78-007c2f81ebb1)
+
+### [Page 34](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20034.md)  | [Page 36](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20036.md)
