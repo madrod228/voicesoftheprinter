@@ -29,3 +29,5 @@ Image Required
 ![toolhanger playah](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d43f5656-c566-4b90-aaec-449eff74792b)
 ## [Vier Plush](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/vierPlush.rar) CR: scorchedice
 ![vierplush scorchedice](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ad2b0102-b839-4fdc-a060-c5f6092d9ab4)
+
+### [Page 37](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20037.md)  | [Page 39](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20039.md)
