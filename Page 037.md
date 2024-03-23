@@ -21,7 +21,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f8cad398-4b05-4538-a19a-2fd60d22f0d4)
 ## [The Bee Movie Script](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/beemovie.7z) CR: sahneisttoll
 ![bee movie](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2c8eca55-9a2d-45ef-b91e-10b76aa992fc)
-## [Cerveza Cristal](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/cerveza_cristal_hl2.rardiabomb) CR: 
+## [Cerveza Cristal](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/cerveza_cristal_hl2.rar) CR: diabomb
 ![cristal bottle diabomb](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6ba5bbcd-7811-4f4e-808c-3715861931bb)
 ## [Miku Minecraft](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/mikuminecraft.rar) CR: its_sasha
 ![Minecraft Miku its_sasha](https://github.com/madrod228/voicesoftheprinter/assets/9602000/80ec14c4-bb99-44dd-941e-bbd36458e925)
