@@ -27,5 +27,7 @@ image required
 ![fuel rack lukasss101](https://github.com/madrod228/voicesoftheprinter/assets/9602000/77d9e94e-9671-42a1-8e60-b62c887a9df3)
 ## [Helldivers 2 B-01 Tactical Helmet](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20033/helmetpixed.rar) CR: evactouch
 ![Helldiver Helmet](https://github.com/madrod228/voicesoftheprinter/assets/9602000/863389a8-7e3b-4d48-bc7f-ff3b7ff79731)
-## [Miku](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20033/miku%20csat.zip) CR: csat
+## [Miku Figurine](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20033/miku%20csat.zip) CR: csat
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ab53fcab-6a26-4673-80c6-61daaccc4d63)
 
+### [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20032.md)  | [Page 34](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20034.md)
