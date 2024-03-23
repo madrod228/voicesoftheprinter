@@ -8,7 +8,7 @@
 ## [Disco Ball](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/Disco%20Ball.rar) CR: playah
 ![Discoball playah](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0000b72a-6098-4109-bf01-11c32d2b6780)
 ## [Glorp](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/Glorp2.rar) CR: panman
-![Gnarp panman](https://github.com/madrod228/voicesoftheprinter/assets/9602000/53643f57-10cc-4d07-b686-f0bcde1ffdb7)
+Image Required
 ## [Glorp Cutout](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/glorp.rar) CR: tomjack02go
 ![GlorpSighting tomjack02go](https://github.com/madrod228/voicesoftheprinter/assets/9602000/972a38e0-094c-4cf3-9bb9-0d0e0ddd8a3f)
 ## [HL2 Props](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/HL2%20props.rar) CR: sleepdeprivedgaming_88431
