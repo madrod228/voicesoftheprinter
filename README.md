@@ -1,6 +1,6 @@
 # NOTICE VERY IMPORTANT
 As of Update D07 most prints are now broken with the new collision system. We will try and update all the prints with the new collision system, but this will take time please have Patience.
-### As of right now Pages 1-22are fixed
+### As of right now Pages 1-22 and 32-39 are fixed
 
 
 # LOOK HERE
