@@ -29,3 +29,5 @@
 ![404_coffee exe Chaos Emralds](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a2d7a94d-c531-4c5d-b71b-7234e95b545d)
 ## [Eggman Plush](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20036/egg.rar) CR: peppo
 ![Eggman peppo](https://github.com/madrod228/voicesoftheprinter/assets/9602000/cd823412-062c-4c7d-9c17-d4d263aea606)
+
+### [Page 35](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20035.md)  | [Page 37](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20037.md)
