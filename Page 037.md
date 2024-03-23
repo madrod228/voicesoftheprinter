@@ -29,3 +29,5 @@ Image Required
 ![AA Gun 61k blessedmarie](https://github.com/madrod228/voicesoftheprinter/assets/9602000/396f35d1-1563-4e26-ad48-8bfc7d2147ac)
 ## [Tsar Bomba](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/tb.rar) CR: roomba8681
 Image Required 
+
+### [Page 36](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20036.md)  | [Page 38](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20038.md)
