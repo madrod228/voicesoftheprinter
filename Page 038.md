@@ -4,7 +4,7 @@
 ## [Charbell](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/Charbwell.rar) CR: carbolemons
 ![charbell carbolemons](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a218137e-9885-4134-8fdc-036d56db5c54)
 ## [Dakimura](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/Daki.rar) Customizable (edit the image included in rar) CR:
- Image Required
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d4a62c25-69b0-4f7c-9979-3b6c9b42b3a4)
 ## [Pillows](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/pillows_by_.fluffluff.rar) CR: .fluffluff
 ![pillows_demo](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0e38ed0f-ac93-4cef-a587-58465303305d)
 ## [Kerfus Pillows](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/Kerfus%20Pillows.rar) CR: akisephila .fluffluff
