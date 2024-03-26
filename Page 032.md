@@ -28,7 +28,7 @@
 ![silly little guy](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6ac1de3b-8927-4288-94db-5b56d8e9212c)
 ## [Xander](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20032/xander.rar) CR: fishyviolet xander_.
 ![Xander](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7bffc952-68e1-4fad-be0e-32071df31e4d)
-## [Kefus Rozital Stand](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Archive/Page%20032/SPOILER_kurfurstand_ROZITAL.rar) CR:fishyviolet
+## [Kefus Rozital Stand](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20032/SPOILER_kurfurstand_ROZITAL.rar) CR:fishyviolet
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/cf9d9e37-d9ab-4a08-b65d-ac938c9c8661)
 ## [Kitty Cat](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20032/kittycat.rar) CR:deady42
 Image Required
