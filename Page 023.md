@@ -1,6 +1,4 @@
 # Page 23
-## [Small Whiskey Bottle](https://discord.com/channels/512287844258021376/1132040858343059638/1188316670025015306) deleted
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a51d1a33-1876-4413-a321-1a2141cb1a90)
 ## [Weeping Angel](https://discord.com/channels/512287844258021376/1132040858343059638/1188338607421935676) CR: boomk1ng FIXED
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/598b6b45-acbf-4526-b997-49ef70172ffd)
 ## [Houshou Marine Figure](https://discord.com/channels/512287844258021376/1132040858343059638/1188694159276638278) CR: boomk1ng FIXED
