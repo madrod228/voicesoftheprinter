@@ -13,7 +13,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d1ec5edd-058d-4de2-b1e1-ff781b779943)
 ## [Mug](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20005/aso_mugs_by_toomuchmail.rar) CR: toomuchmail
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8a58f225-e813-4b7f-ab1d-62ecbc33a50b)
-## [Big Kel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20005/big_kel_made_by_misskatsune_enlarged_by_fluffluff.rar) CR: .fluffluff
+## [Big Kel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20005/big_kel_made_by_misskatsune_enlarged_by_fluffluff.rar) CR: .fluffluff misskatsune 
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/62998115-8a28-46d4-abdd-21d5c051428b)
 ## [Skibidi Toilet](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20005/skibidi_toilet.rar) CR: sahneisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/af258191-1bab-438c-87b0-12c3a8e16e6b)
