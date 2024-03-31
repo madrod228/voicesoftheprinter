@@ -9,9 +9,9 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6e8444f5-c487-46c8-9368-ab401fed4e61)
 ## [Grates](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20017/Grates%20by%20mehwoh%20(fitted%20for%20pre-0.7%20base).rar) CR: mehwoh OBSELETE FOR 0.7
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5af56e50-d9b4-42d6-a57e-bf0a68f88c3e)
-## [Tardis](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20017/tardis0.7.zip) CR: boomk1ng FIXED
+## [Tardis](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20017/tardis0.7.zip) CR: boomk1ng 
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/77ede549-b940-413b-a767-a070a8ce4442)
-## [GLaDOS Big/Small](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20017/GLaDOS%20BigSmall%20by%20boomk1ng.rar) CR: boomk1ng
+## [GLaDOS Big/Small](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20017/GLaDOS_BigSmall_by_spacemoonbear.rar) CR: spacemoonbear
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c9e6396d-1612-4aa6-8681-c47767c11468)
 ## [Toy Barrel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20017/Toy%20Barrel%20by%20mehwoh.rar) CR: mehwoh
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5da53762-e438-4cbe-91ba-96da6c49fd94)
