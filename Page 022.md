@@ -7,7 +7,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/93e9ff9a-52df-4abc-8a05-80b2f88dba4d)
 ## [LP Pomni](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/Pomni.rar) CR: killerblade555
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/732b7d1e-a640-4d20-a94d-d81a36342505)
-## [KOOL PCz](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/KOOLPCz.rar) CR: ujmeade
+## [KOOL PCz](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/KOOLPCz.rar) CR: ujmeade cleaninglynx
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/cc6ec5b3-bc32-44af-9f53-e16a96a72a28)
 ## [Lethal Company Employees](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/Lethal_Company_Goobers.rar) CR: sleepdeprivedgaming_88431
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ee3fe503-cb7b-4904-8bbe-be2bc19285dc)
