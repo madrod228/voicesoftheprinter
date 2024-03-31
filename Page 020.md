@@ -17,7 +17,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/86798284-c95c-4688-a20d-298b1036799b)
 ## [Deimos](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20020/Deimos1.rar) CR: sleepdeprivedgaming_88431
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/23872381-cd43-4c73-997e-1e8cdd0ce182)
-## [War of the Worlds book](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20020/BOOK_WarofTheWorlds.rar) CR: ujmeade
+## [War of the Worlds book](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20020/BOOK_WarofTheWorlds.rar) CR: ujmeade .fluffluff
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7ca90f63-9b9c-4408-be42-b723aeec6c9c)
 ## [Wolfgang Bowls SM/MED/JUM](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20020/fluff_wg_food_bowl_fixed.7z) CR: .fluffluff
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/973e1e02-0d2b-404d-b39b-bf5687d47fad)
