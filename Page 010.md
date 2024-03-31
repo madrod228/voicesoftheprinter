@@ -25,7 +25,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/46f4a271-8282-4ba8-a740-ddcd95fb1730)
 ## [Halligan](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20010/Halligan.7z) CR: .lenden
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/08359b29-b94e-477b-98af-d9f7ccada482)
-## [DoppleKel Plush](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20010/dopplekel_plush.7z) CR: ujmeade
+## [DoppleKel Plush](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20010/dopplekel_plush.7z) CR: ujmeade tammasun
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/78750601-3f0d-42c1-b0d0-2d96e0094997)
 ## [Detective Lowry](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20010/Lowry.7z) CR: .lenden
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/821ff458-7689-4494-96a5-9395a7837b1f)
