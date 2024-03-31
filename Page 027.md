@@ -20,7 +20,7 @@
 ## [SSMB Item Blocks](https://discord.com/channels/512287844258021376/1132040858343059638/1199440692561322015) CR: sahneisttoll
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/7532726f-278f-41ea-83d7-ae357ceb181f)
 ## [0²](https://discord.com/channels/512287844258021376/1132040858343059638/1199452501729091625) CR: sahneisttoll
-![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/90f036b0-a79e-4e71-9e75-dbc43262e4a1)
+![304928069-90f036b0-a79e-4e71-9e75-dbc43262e4a1](https://github.com/madrod228/voicesoftheprinter/assets/9602000/358a67ff-ccd9-4d82-8daf-c5d42335c86c)
 ## [SSMB DK](https://discord.com/channels/512287844258021376/1132040858343059638/1199484554646409226) CR: sahneisttoll
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/2298394e-f181-4b56-8f47-c68fc2fdfb1c)
 ## [UK Terminal](https://discord.com/channels/512287844258021376/1132040858343059638/1199620151570612264) CR: sleepdeprivedgaming_88431 lespoog
