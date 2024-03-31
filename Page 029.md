@@ -15,7 +15,7 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/a9c73ce3-2204-47b9-809b-9e90071d955b)
 ## [Adrikaru Doll](https://discord.com/channels/512287844258021376/1132040858343059638/1202828059229822997) CR: penskii
 ![Screenshot (879)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/76415280-74dc-4cbc-b7b4-baedd0651944)
-## [Lain](https://discord.com/channels/512287844258021376/1132040858343059638/1203026022157783101) CR: sahneisttoll
+## [Lain](https://discord.com/channels/512287844258021376/1132040858343059638/1203026022157783101) CR: sahneisttoll sleepdeprivedgaming_88431
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/d8478f9a-e2da-4d0d-91e9-adb74d80986a)
 ## [Sushi](https://discord.com/channels/512287844258021376/1132040858343059638/1203428620828283024) CR: killerblade555
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/ffa444b9-7ee0-4f7b-8cb1-a157778adf53)
