@@ -21,10 +21,6 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2d547996-2c72-4e7a-a627-ec521e4c704f)
 ## [Boingy Boof Football](https://discord.com/channels/512287844258021376/1132040858343059638/1193311525402841319) CR: gaming_sc
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/763c2fc8-fa86-43c7-9aaa-2f18acf4f2e2)
-## [Squeaky](https://discord.com/channels/512287844258021376/1132040858343059638/1193400171753648239) CR: DELETED
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4aecbf2a-c036-4b89-b047-12e9c52e2ec2)
-## [Stubby](https://discord.com/channels/512287844258021376/1132040858343059638/1193404450535125123) CR: DELETED
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/49edc7b0-8ab9-42de-8668-1de1e6a66970)
 ## [Gianni Plush](https://discord.com/channels/512287844258021376/1132040858343059638/1194720338416771202) CR: sleepdeprivedgaming_88431
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2105c6d7-466a-4923-aca0-2d006fda8868)
 ## [Hoarding Bug](https://discord.com/channels/512287844258021376/1132040858343059638/1194965086620626994) can hold objects  CR: sleepdeprivedgaming_88431
