@@ -23,7 +23,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b4c8f91d-6495-4df2-a8d5-457ade1906be)
 ## [Murder Drones Plushies](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20011/Murder_Drones_Plushies_by_misskatsune.rar) CR: misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b0806b73-5fae-42ee-92cc-3137226cb8a0)
-## [Bloxy Cola](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20011/BloxyCola_by_ujmeade.rar) CR: ujmeade
+## [Bloxy Cola](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20011/BloxyCola_by_ujmeade.rar) CR: ujmeade anonymousmeat
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/01997a41-e539-438e-8149-11a5e7cbdbf6)
 ## [Aubry (Omori)](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20011/Aubry(Omori)_by_dr.bob.rar) CR: dr.bob.
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/caccd639-c606-4f7a-a393-8a8277f31a7c)
