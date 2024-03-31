@@ -17,7 +17,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/bc8473b1-3260-476d-9a1b-fe698310cd42)
 ## [S4L Marshmallow Puppies](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/S4L_marshmallow_puppy.rar) CR: sahneisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a853c6d7-d1df-4b6c-9867-f7254cc3f742)
-## [UFO Satanic Terror](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/UFO%20Satanic%20Terror%20by%20ujmeade.rar) CR: ujmeade 
+## [UFO Satanic Terror](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/UFO%20Satanic%20Terror%20by%20ujmeade.rar) CR: ujmeade .fluffluff
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d632edde-49bf-4b82-a5a8-67428c3c1de6)
 ## [Gun Pack 1](https://cdn.discordapp.com/attachments/1132040858343059638/1218363942813044917/Gun_Pack_1_by_named_name1235.rar?ex=660764d8&is=65f4efd8&hm=46fcf6019d93dae62c9705455121a7227a7b7fcf7a242f5f0b567891dcad3b01&) CR: named_name1235
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c92ecac2-bf46-44ec-a9b4-15fe288cd4a4)
