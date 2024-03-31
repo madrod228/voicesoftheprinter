@@ -15,7 +15,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1f29a386-f78a-44b5-9af4-1c2968fcd753)
 ## [Minecraft Steve](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/steve.rar) Can swap out skins will only do base layer no outer layers CR: deady42
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8c6cadd0-b706-4603-8f5b-6e4018e84648)
-## [Kerfus Mugs](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Kerfus%20Mugs.rar) CR: tammasun
+## [Kerfus Mugs](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Kerfus%20Mugs.rar) CR: tammasun ujmeade
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5fcf5dfa-2cc2-4b36-a3bd-cd749d3811ac)
 ## [Gnome](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Gnome.rar) CR: evactouch
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/79c927cd-a72d-414d-a5c2-f9de561a8b67)
