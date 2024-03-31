@@ -1,9 +1,9 @@
 # Page 4
 ## [Cirno Fumo](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20004/cirno.rar) CR: sprinkleplantz
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/804282c6-0f7d-49f4-81c5-2a1130bb177b)
-## [PH Evil Kel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20004/Dr_Dark_Kel.rar) CR: .fluffluff
+## [PH Evil Kel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20004/Dr_Dark_Kel.rar) CR: .fluffluff misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d6dd853d-f5e7-444b-b423-428d590c1e3c)
-## [PH Evil Kel Plushie](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20004/darkkelplush.rar) CR: its_sasha
+## [PH Evil Kel Plushie](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20004/darkkelplush.rar) CR: its_sasha misskatsune fluffluff
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/9927cfca-6595-4723-b1f4-e64c8b7b5d09)
 ## [Neptunia Plushie](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20004/nep_plush.rar) CR: selene11
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c51cc82e-ce06-44ba-b8e0-93dcefa43cc3)
