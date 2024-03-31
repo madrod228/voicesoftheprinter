@@ -25,7 +25,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a141952f-0842-4514-8352-17dbc62d2625)
 ## [Scar H](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/new_scar.rar) CR: haru_3s ntckv auradacella
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/821144dc-052c-40e6-9e2e-2910712fa6b8)
-## [Floraium](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/Florarium.rar) CR: tammasun ujmeade
+## [Florarium](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/Florarium.rar) CR: tammasun ujmeade
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/03429a02-e247-4e11-b11c-f2711d464bc7)
 ## [Astolfo Bean Plushie](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/Astolfo.rar) CR: puppycat
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/af8cb2b9-674b-4155-a645-0301d21db58e)
