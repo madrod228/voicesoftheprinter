@@ -1,5 +1,5 @@
 # Page 28
-## [5th Angel Ramiel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20028/5th%20Angel%20Ramiel%20by%20imafluffycat.rar CR:imafluffycat
+## [5th Angel Ramiel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20028/5th%20Angel%20Ramiel%20by%20imafluffycat.rar) CR:imafluffycat
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/caa76ef5-f24f-419d-9f49-b90258d86758)
 ## [1971 Ford Falcon GTHO](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20028/1971%20Ford%20Falcon%20GTHO%20by%20mcfluff_%20and%20watty456.rar) CR: mcfluff_ WATTY456
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/70364bd5-1e09-409c-b797-c97e41e5681d)
