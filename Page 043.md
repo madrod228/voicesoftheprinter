@@ -27,3 +27,5 @@ Image Required
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/811ba5d4-41ba-4b7f-a8e8-7568e81c200b)
 ## []() CR: 
 ## []() CR: 
+
+### [Page 42](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20042.md)  | [Page 44](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20044.md)
