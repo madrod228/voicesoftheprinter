@@ -1,0 +1,26 @@
+# Page 41
+## [AK74M](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/AK74m.rar) CR: 
+![bebrichevk stuff](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b74915dc-1b9b-4ec4-8d13-b5009ca4d359)
+## [PPSH](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/PPSH.rar) CR: 
+![Votv_Screenshot_2024 03 30_-_01 46 44 02](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5307be9a-f3a3-4db5-8942-93b50c0e6ee9)
+## [SVT40](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/svt40.rar) CR: 
+![Votv_Screenshot_2024 03 30_-_01 43 50 60](https://github.com/madrod228/voicesoftheprinter/assets/9602000/e5139284-b32d-4b29-807b-4e36eb21bd40)
+## [T-60 1](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/t-60_1.rar) CR:
+![Votv_Screenshot_2024 03 30_-_01 51 20 97](https://github.com/madrod228/voicesoftheprinter/assets/9602000/380d6450-1856-45cb-ab2e-8e223c868136)
+## [Crusader AA-1](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/Crusader_AA-1.rar) CR: 
+![Votv_Screenshot_2024 03 30_-_01 48 00 39](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4cab842a-d2b7-40c2-8789-39a3a1fe0042)
+## [Calligemia 1](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/Calligemia.rar) CR: 
+![cleaninglynx  flufffluff](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c663f8b0-2b73-49fb-8666-29f818e5d796)
+## [Calligemia 2](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/calli_plushie.rar) CR: 
+![fallkyrielynner coffee_fox_13](https://github.com/madrod228/voicesoftheprinter/assets/9602000/734362c7-ee0e-4611-b632-87bd4325511f)
+## [Gamer Argem](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/argemia_gamer.rar) CR: 
+![tammasun gamer](https://github.com/madrod228/voicesoftheprinter/assets/9602000/fb6a7f67-245d-4829-9b8f-11e041de5f2a)
+## [Globe](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/globe.zip) CR: 
+![disfigure3583 globe](https://github.com/madrod228/voicesoftheprinter/assets/9602000/edaa37d7-33e7-4ad6-8168-d4c2ec05c30f)
+## [Steward](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/Steward.zip) CR: 
+
+## [AC Cake Slice](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/cakeslice_from_animal_crossing_newleaf_by_.fluffluff.rar) CR: 
+## [Kenny](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/kennyy.rar) CR: 
+## [Mimichope](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/mimichope.rar) CR: 
+## [Schlagg](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/schlagg.zip) CR: 
+## []() CR: 
