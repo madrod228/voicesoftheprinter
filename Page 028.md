@@ -5,9 +5,9 @@
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/70364bd5-1e09-409c-b797-c97e41e5681d)
 ## [Fortnite Peter Griffin](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20028/Fortnite_PeterGriffin.rar) CR: sahneisttoll
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/fe9ecb84-9993-498f-a930-81a7c2835518)
-## [Among Drip](https://discord.com/channels/512287844258021376/1132040858343059638/1200472593283698888) CR: sahneisttoll
+## [Among Drip](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20028/AmongDrip.rar) CR: sahneisttoll
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/fd52f9de-a2f8-4510-9745-17cee04dfd4a)
-## [Peter Medallion](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20028/AmongDrip.rar) CR: sahneisttoll
+## [Peter Medallion](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20028/Fortnite_PeterMedallion.rar) CR: sahneisttoll
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f23248d3-4f27-4107-9eaf-8d0eac1dd6e9)
 ## [Beach Ball](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20028/Beachball.rar) CR: sahneisttoll
 ![Screenshot (668)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/3b837867-27dc-4910-aca7-3f65cb0903cf)
