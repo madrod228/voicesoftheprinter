@@ -31,5 +31,4 @@ Image Required
 ## [Lazy Ikeda's Prints]() CR: lazy_ikeda
 ![lazy_ikeda archive](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3f2b4962-d30a-4c1c-91f9-67b07fad3b77)
 
-
 ### [Page 38](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20038.md)  | [Page 40](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20040.md)
