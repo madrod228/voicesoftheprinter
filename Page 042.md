@@ -30,3 +30,5 @@ Image Required
 Image Required
 ## [Succulent 2](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20042/succulent_2.rar) CR: tammasun
 Image Required
+
+### [Page 41](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20041.md)  | [Page 43](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20043.md)
