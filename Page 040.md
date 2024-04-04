@@ -30,3 +30,4 @@ Image Required
 ## [Twilight Sparkle](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/twilight-sparkle.rar) CR: fallkyrielynner endocryne87 mylittlepony com
 ![fallkyrielynner endocryne87 mylittlepony com](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ab283511-1b2f-4939-bd7e-febb0811a94b)
 
+### [Page 39](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20039.md)  | [Page 41](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20041.md)
