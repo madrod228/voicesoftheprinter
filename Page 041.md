@@ -28,4 +28,6 @@
 ![RDT_20240330_1511323237016037976184025](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b0d820c7-ba26-469f-b9fb-28bd88b942be)
 ## [Schlagg](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/schlagg.zip) CR: disfigure3583
 ![disfigure3583 schlagg](https://github.com/madrod228/voicesoftheprinter/assets/9602000/daacac13-b382-4ebf-b882-c9b56f638987)
-## []() CR: 
+## [Contraband Pack]() CR: corporatecapitalism (forgot to upload the pack check back later)
+![dfjfdsz corporatecapitalism](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d258b8ff-9cc4-4c4d-8b4c-d3dd0566517c)
+
