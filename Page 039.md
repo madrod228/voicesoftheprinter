@@ -24,13 +24,12 @@ Image Required
 ## [Deformity](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20039/deformity.rar) CR:gaming_sc
 Image Required
 ![gaming_sc](https://github.com/madrod228/voicesoftheprinter/assets/9602000/34885f4e-c110-452b-9f69-f391a1e16f01)
-## [Old Evil Rock](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20039/evil-rock.rar) CR: its_sasha VOTV
+## [Old Evil Rock](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20039/evil-rock.rar) CR: its_sasha 
 ![its_sasha](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8daf6cf2-339e-47ab-b14d-3816929ada66)
-## [Meteor Chunk](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20039/meteor-chunk.rar) CR:
+## [Meteor Chunk](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20039/meteor-chunk.rar) CR: its_sasha
 ![its_sasha2](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f05ddfa9-708a-4210-8b12-98123951b339)
 ## [Lazy Ikeda's Prints]() CR: lazy_ikeda
 ![lazy_ikeda archive](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3f2b4962-d30a-4c1c-91f9-67b07fad3b77)
 
-# [All Models past this one have not been added yet](https://discord.com/channels/512287844258021376/1132040858343059638/1220217033212297226) :triangular_flag_on_post:
 
 ### [Page 38](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20038.md)  | [Page 40](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20040.md)
