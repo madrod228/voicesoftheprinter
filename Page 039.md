@@ -4,6 +4,7 @@
 ## [Chainsaw Fumos and Statues + Neco Arc](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20039/Fumos%20and%20Statues.rar) CR: nalmac
 ![Nalmac Neco, Kobeni, and Power Fumos and statues](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d76bdf7d-8a78-459b-a3c7-6e3647423790)
 ## [Bustling Fungus](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20039/BustlingFungus.rar) CR: kaliber8022 a_fruit_in_disguise
+Image Required
 ## [Desk Plant](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20039/DeskPlant.zip) CR: kaliber8022 
 ![Voices_of_the_Void_3_22_2024_6_12_48_PM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4389b35e-be47-471b-bb9c-0688b8bf0e08)
 ## [NRG DRink](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20039/NRG_Drink.zip) CR: kaliber8022 
