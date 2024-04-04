@@ -12,7 +12,7 @@ Image Required
 ![173 apeshizer](https://github.com/madrod228/voicesoftheprinter/assets/9602000/892e30ba-b666-458d-9559-98a7e94dbf61)
 ## [Scolipede and Shiny](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20042/Scolipede.rar) CR: lonesomepage
 ![scolipede lonesomepage](https://github.com/madrod228/voicesoftheprinter/assets/9602000/55dfcdee-26b6-4662-96e6-270ced88cd98)
-## [Bafford Guard](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20042/bafford_guard.rar) CR: 
+## [Bafford Guard](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20042/bafford_guard.rar) CR: playah
 ![playah guard](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ae9e64a1-420d-4c03-ae4d-1873f9657de1)
 ## [Big Maxwell](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20042/big_maxwell.rar) CR: avid1239354
 ![huge_maxwell  david1239354](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d1c530f6-af13-46ab-ba1e-2caee65eb2c2)
