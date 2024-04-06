@@ -27,7 +27,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/53b063df-7344-4c91-ac6e-dcdde1c45c4d)
 ## [Coilhead](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/coilhead.rar) CR: sleepdeprivedgaming_88431
 ![VotV   12_27_2023 2_54_53 PM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/38134ae6-5065-48b1-8f6a-bc21dc7986e4)
-## [Wine](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/Wine.rar) and [Polish Mead](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/Polish%20Mead.rar7) CR: killerblade555
+## [Wine](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/Wine.rar) and [Polish Mead](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/Polish%20Mead.rar) CR: killerblade555
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f5210a28-4790-4ed5-b2b3-fc2b9e04e1f1)
 
 ### [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20021.md)  | [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20023.md)
