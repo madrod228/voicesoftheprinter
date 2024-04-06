@@ -8,7 +8,7 @@
 ## [Disco Ball](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/Disco%20Ball.rar) CR: playah
 ![Discoball playah](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0000b72a-6098-4109-bf01-11c32d2b6780)
 ## [Glorp](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/Glorp2.rar) CR: panman
-Image Required
+![318961931-98dc60fd-72b7-4743-a0da-52371cbb089e](https://github.com/madrod228/voicesoftheprinter/assets/9602000/18ab3438-40e3-4230-8007-b3c7ac396f2d)
 ## [Glorp Cutout](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/glorp.rar) CR: tomjack02go
 ![GlorpSighting tomjack02go](https://github.com/madrod228/voicesoftheprinter/assets/9602000/972a38e0-094c-4cf3-9bb9-0d0e0ddd8a3f)
 ## [HL2 Props](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/HL2%20props.rar) CR: sleepdeprivedgaming_88431
@@ -28,6 +28,6 @@ Image Required
 ## [T-26](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/t26.rar) CR: blessedmarie
 ![AA Gun 61k blessedmarie](https://github.com/madrod228/voicesoftheprinter/assets/9602000/396f35d1-1563-4e26-ad48-8bfc7d2147ac)
 ## [Tsar Bomba](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/tb.rar) CR: roomba8681
-Image Required 
+![318961961-100f24b7-eed0-4ef1-9ed6-b752e4c992d6](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7342d2f2-5913-46c3-89f2-5af486cacd17)
 
 ### [Page 36](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20036.md)  | [Page 38](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20038.md)
