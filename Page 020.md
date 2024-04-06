@@ -26,7 +26,7 @@
 ## [Floppy Disk Collection](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20020/Floppy.7z) CR: joebama3237
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/96ccac0b-cccc-4652-8ded-fbdcbb18d642)
 ## [Bodsworth Cat](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20020/BodsworthCat.rar) CR: Unknown Creator
-(image requried)
+![318961790-7ab6d338-97d6-41c0-84b3-0974c01bc23a](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8996d34d-55ef-4904-a6bf-b2c5f2ad1116)
 ## [Small Cabinet](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20020/smallcabinet.rar) CR: mycoolaccount 
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/64b29b76-2ef6-4b3c-8e1a-cd535bb023ff)
 ## [Non Hypno Boykisster](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20020/Boykisser_Non_Hypno.rar) CR: ujmeade sahneisttoll 
