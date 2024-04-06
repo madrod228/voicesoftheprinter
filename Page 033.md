@@ -22,7 +22,7 @@
 ## [Pig Fat](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20033/fatofhog.zip) CR: vhbc
 ![VotV-Win64-Shipping_z5YgGrFlG5](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4465116e-599b-4b9c-af53-aaede084104b)
 ## [Fruit Loop](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20033/fruitloop.rar) CR: fishyviolet
-image required
+![318961838-d1c2f95d-9a67-4601-8476-549738d54453](https://github.com/madrod228/voicesoftheprinter/assets/9602000/121f5a40-8b87-4d25-9a33-275bddc464db)
 ## [Fuel Rack](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20033/fuel_rack.rar) CR: lukasss101
 ![fuel rack lukasss101](https://github.com/madrod228/voicesoftheprinter/assets/9602000/77d9e94e-9671-42a1-8e60-b62c887a9df3)
 ## [Helldivers 2 B-01 Tactical Helmet](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20033/helmetpixed.rar) CR: evactouch
