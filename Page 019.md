@@ -10,7 +10,7 @@
 ## [Hank](hhttps://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Hank%20(Madness%20Combat)%20by%20sleepdeprivedgaming_88431.rar) CR: sleepdeprivedgaming_88431
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2ae80949-2919-41a2-8417-22a94136779f)
 ## [Yuuka Fumo](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Yuuka%20Fumo%20by%20moev2.rar) CR: moev2
-(Image Required)
+![318961731-98bb4a55-8623-4448-acad-1595838f355f](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b982357b-2ac5-4575-a74a-4e1b321337a8)
 ## [Koishi Fumo](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Koishi%20Fumo%20by%20watty456.rar) CR: watty456
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2b4c24b0-0257-4863-9e4b-53a0f4e2e9ca)
 ## [Boykisser Hypno](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Boykisser_Hypno.rar) CR: sahneisttoll
