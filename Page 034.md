@@ -18,9 +18,9 @@
 ## [Amogus](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20034/amogus.zip) CR: lukasss101
 ![Deformity amongus lukasss101](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5d5c108e-8a5a-4528-bf23-c948de78e30f)
 ## [Block](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20034/block.rar) CR:  mrglyukiglyuk 
-image required
+![318961889-8c015c8a-a9c1-40f4-a107-c12c86a09bd1](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c672c313-89d1-4d06-b41e-ffd7306386a7)
 ## [Chair](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20034/gluk.rar) CR:  mrglyukiglyuk 
-image required
+![318961907-0d7e4082-68c5-40e1-b8b6-3d3c6d9e89b6](https://github.com/madrod228/voicesoftheprinter/assets/9602000/16133e57-a377-47fd-b6b2-ab12b757403f)
 ## [nfsmw05_BMW_M3_GTR_E46](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20034/nfsmw05_BMW_M3_GTR_E46.7z) CR: sahneisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d38fd86c-6397-4f02-be69-b3f1af0f3061)
 ## [Player](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20034/player.rar) CR: cleaninglynx
