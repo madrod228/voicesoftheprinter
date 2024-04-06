@@ -5,13 +5,22 @@
     - model_name_example``.png``
     - model_name_example``_pbr.png``
     - model_name_example``_normal.png``
-  - ## N-Gons
+  - ## N-Gons and Vert Count
+
+    - ### !!QUIRK!! Vert count being 3x-3.5x more than in Blender <br>
+    UE4 the engine VotV runs on for some reason **triples** the Vert count. Its a Quirk that is Not fixable. (or no solution has been Found.) <br>
+    It's recommended to *auto Quad* or *manually Quad* everything before exporting on Models that are primarily Tri's. <br>
+    Blender sees 2 Tri's that make up a Quad as 4 Verts therefore showing less Vert's in the Status of the model in Blender. <br>
+    The Printer does not, and will usually show ~50% more Vert's in its Menu as 2 Tri's = 6 Vert's
+
     - Try to not have any N-Gons. N-Gons are Faces of a Mesh that have more than ``4 Vertices``. <br>
-      Unreal Engine pokes Quads and N-Gons for some reason instead of triangulating the Faces, creating the mess below
-      ![pokerfacelowq](https://github.com/madrod228/voicesoftheprinter/assets/93410850/a0cf1b7d-d55b-4c07-a379-cda6679a8484)
-    
-      to fix the issue above, tick this on Export (or Triangulate before exporting) <br>
-      ![triangulat](https://github.com/madrod228/voicesoftheprinter/assets/93410850/4f2741e7-7e33-4c66-8d01-9681c99b6df1)
+      Unreal Engine pokes Faces with more than 4 Vert's for some reason instead of triangulating the Faces, creating the mess below
+      ![pokerfacelowq](https://github.com/madrod228/voicesoftheprinter/assets/93410850/a0cf1b7d-d55b-4c07-a379-cda6679a8484) <br>
+      to have an easy fix, tick this on Export (or Triangulate manually before exporting) <br>
+      ![triangulat](https://github.com/madrod228/voicesoftheprinter/assets/93410850/4f2741e7-7e33-4c66-8d01-9681c99b6df1) <br>
+      its an easy "fix" button but will increase the Vert count by ~50%. ontop of the 3x from UE4 lol.<br>
+      Pretty useful if you dont know how to retopo and just want it in the game. <br>
+      What it does exactly is ``1 Quad -> 2 Triangles -> 6 Verts, N-Gons can turn into alot of Tri's, execpt alot more Vert's``
 
 
 
