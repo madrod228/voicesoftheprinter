@@ -31,5 +31,5 @@
 ## [Kefus Rozital Stand](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20032/SPOILER_kurfurstand_ROZITAL.rar) CR:fishyviolet
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/cf9d9e37-d9ab-4a08-b65d-ac938c9c8661)
 ## [Kitty Cat](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20032/kittycat.rar) CR:deady42
-Image Required
+![318966155-cfc524e4-d44c-418d-8e21-803faa4970d5](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8ebe1863-13e0-4bdf-aa64-ccc1a3a45dbb)
 ### [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20031.md)  | [Page 33](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20033.md)
