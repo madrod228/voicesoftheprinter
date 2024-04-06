@@ -8,7 +8,7 @@
 ## [Pillows](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/pillows_by_.fluffluff.rar) CR: .fluffluff
 ![pillows_demo](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0e38ed0f-ac93-4cef-a587-58465303305d)
 ## [Kerfus Pillows](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/Kerfus%20Pillows.rar) CR: akisephila .fluffluff
-Image Required
+![318966303-ea8ab469-f338-40f4-b1b5-910ccf03846a](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1dd71ddf-32ef-4faf-91f6-5e2c3ab217b5)
 ## [MNHR Body](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/MNHRBody.rar) CR: nulltoast
 ![mnhr body nulltoast](https://github.com/madrod228/voicesoftheprinter/assets/9602000/be620214-83b6-4af5-93ce-0525ca21c1a5)
 ## [Tables and Chairs](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/Modern_Cafe_Table_and_Chairs_by_.fluffluff.rar) CR: .fluffluff
