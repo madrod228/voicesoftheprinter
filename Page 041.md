@@ -17,12 +17,12 @@
 ![tammasun gamer](https://github.com/madrod228/voicesoftheprinter/assets/9602000/fb6a7f67-245d-4829-9b8f-11e041de5f2a)
 ## [Globe](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/globe.zip) CR: disfigure3583
 ![disfigure3583 globe](https://github.com/madrod228/voicesoftheprinter/assets/9602000/edaa37d7-33e7-4ad6-8168-d4c2ec05c30f)
-## [Steward](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/Steward.zip) CR: moobloom_
-<img width="827" alt="moobloom_" src="https://github.com/madrod228/voicesoftheprinter/assets/9602000/74b012ea-2e0e-4b70-8bd0-6a31dffb97d6">
+## [TLoZ Tears of the Kingdom - Steward](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/Steward.zip) CR: moobloom_
+<img width="512" alt="moobloom_" src="https://github.com/madrod228/voicesoftheprinter/assets/9602000/74b012ea-2e0e-4b70-8bd0-6a31dffb97d6">
 
-## [AC Cake Slice](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/cakeslice_from_animal_crossing_newleaf_by_.fluffluff.rar) CR: .flufffluff
+## [Animal Crossing - Cake Slice](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/cakeslice_from_animal_crossing_newleaf_by_.fluffluff.rar) CR: .flufffluff
 ![demo_cake](https://github.com/madrod228/voicesoftheprinter/assets/9602000/13198169-fecc-4272-b81d-83fa605f8f50)
-## [Kenny](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/kennyy.rar) CR: popchi
+## [South Park - Kenny](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/kennyy.rar) CR: popchi
 ![popchi kenny](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a14683d1-8bd4-4b11-8cbd-bb199514429e)
 ## [Mimichope](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/mimichope.rar) CR: popchi
 ![RDT_20240330_1511323237016037976184025](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b0d820c7-ba26-469f-b9fb-28bd88b942be)
