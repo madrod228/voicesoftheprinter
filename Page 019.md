@@ -1,13 +1,13 @@
 # Page 19 
 ## [Dante DMC2](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/DanteFromDevilMyCry2.rar) CR: sahneisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a71a88c3-55be-4556-8a76-b68af636f52d)
-## [Grunt](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Archive/Page%20019/Grunt%20(Madness%20Combat)%20by%20sleepdeprivedgaming_88431.rar) and [Agent](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Agent%20(Madness%20Combat)%20by%20sleepdeprivedgaming_88431.rar)  CR: sleepdeprivedgaming_88431
+## [Grunt](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Grunt%20(Madness%20Combat)%20by%20sleepdeprivedgaming_88431.rar) and [Agent](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Agent%20(Madness%20Combat)%20by%20sleepdeprivedgaming_88431.rar)  CR: sleepdeprivedgaming_88431
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/85b662a2-38cb-4041-90e2-675e0bb38670)
 ## [Soldat](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Soldat%20(Madness%20Combat)%20by%20sleepdeprivedgaming_88431.rar) CR: sleepdeprivedgaming_88431
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f866ffbb-1cd9-4bbe-97f7-ba3f52bf2a20)
 ## [Fake Kel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Fake%20Kel%20by%20evactouch.rar) CR: evactouch
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1073c3af-33c2-4fb7-b74e-356da9cb9803)
-## [Hank](hhttps://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Hank%20(Madness%20Combat)%20by%20sleepdeprivedgaming_88431.rar) CR: sleepdeprivedgaming_88431
+## [Hank](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Hank%20(Madness%20Combat)%20by%20sleepdeprivedgaming_88431.rar) CR: sleepdeprivedgaming_88431
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2ae80949-2919-41a2-8417-22a94136779f)
 ## [Yuuka Fumo](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Yuuka%20Fumo%20by%20moev2.rar) CR: moev2
 ![318961731-98bb4a55-8623-4448-acad-1595838f355f](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b982357b-2ac5-4575-a74a-4e1b321337a8)
