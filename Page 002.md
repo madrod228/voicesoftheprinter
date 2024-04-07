@@ -17,13 +17,13 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8c6cadd0-b706-4603-8f5b-6e4018e84648)
 ## [Kerfus Mugs](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Kerfus%20Mugs.rar) CR: tammasun ujmeade
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5fcf5dfa-2cc2-4b36-a3bd-cd749d3811ac)
-## [Gnome](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Gnome.rar) CR: evactouch
+## [Half Life 2 Episode Two - Garden Gnome Chompski](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Gnome.rar) CR: evactouch
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/79c927cd-a72d-414d-a5c2-f9de561a8b67)
-## [Kiryu Cutout](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/kazzythedragon.rar) CR: anonymousmeat
+## [Yazuka - Kiryu Cutout](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/kazzythedragon.rar) CR: anonymousmeat
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d2f0b7a1-9b25-4cbf-a6e9-c9d38867ff34)
-## [HL1 Gman](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/gman.rar) CR: elliot.d
+## [Half Life 1 - Gman](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/gman.rar) CR: elliot.d
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/36d4fdac-bab4-4839-a4d8-38b9eaea9d6f)
-## [PH Kel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Dr_Kel.rar) CR: misskatsune
+## [VotV - PH Kel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Dr_Kel.rar) CR: misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6dd02245-6213-4846-89ff-c3b6479eb8af)
 ## [Minecraft Argem](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Minecraft%20Argem.rar) CR: misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/03e1ac90-4610-4e03-a8c5-3a14ccd354f1)

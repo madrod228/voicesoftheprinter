@@ -1,5 +1,5 @@
 # Page 3
-## [TF2 Merc Cutouts](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/TF2%20Merc%20Cutouts.rar) CR: evactouch
+## [Team Fortress 2 - Merc Cutouts](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/TF2%20Merc%20Cutouts.rar) CR: evactouch
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/cfafa05a-cc7b-4262-b810-cee33719dafb)
 ## [VargFren](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/VargFren.rar) CR: misskatsune
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/e6c7c4a2-032f-40cf-8356-870aa2607131)
@@ -11,7 +11,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3716c622-f47a-4bc7-8cac-cacea97c5fb0)
 ## [Jinx](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/bigfootjinx.rar) CR: embox
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ec392ee4-b37d-451e-8779-f52df4ba3c6a)
-## [Ultrakill Bodypillows](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/Ultrakill%20Bodypillows.rar) CR: llkiur
+## [ULTRAKILL - Bodypillows](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/Ultrakill%20Bodypillows.rar) CR: llkiur
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/9c35166e-fdd7-46a8-b686-da39db28461f) ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/47618ce4-494e-47e1-954c-10383a2f9f43)
 ## [GwaCat](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/gwa_cat.rar) CR: embox
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ac53ef1a-8659-472f-9224-135bbc6c37be)
@@ -23,11 +23,11 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a210e540-7af1-4732-b540-c480101091a9)
 ## [GM Sniper II Gundam](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/GMSniper.rar) CR: evactouch
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/25c42249-c2ec-4e0f-8587-df63cfd627ee)
-## [Sybill Figurine](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/Sybil%20Figurines.rar) CR: samuelbucher
+## [Pseudoregalia - Sybill Figurine](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/Sybil%20Figurines.rar) CR: samuelbucher
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/edafb7bd-49a5-456c-9c4f-ae1fd6af284a)
 ## [Dinkle](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/dink.rar) CR: tammasun
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/e77c5066-edc2-4b87-9ea6-fc85f93351ea)
-## [Kel Plushie](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/Kel%20Plush.rar) CR: tammasun
+## [VotV - Kel Plushie](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/Kel%20Plush.rar) CR: tammasun
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c862c162-a5b3-4014-b2a3-e8cc97a674f7)
 
 ### [Page 2](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20002.md)  | [Page 4](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20004.md)

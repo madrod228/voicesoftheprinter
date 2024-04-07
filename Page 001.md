@@ -5,7 +5,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/313339de-93b8-4ca6-88e4-c53c9c4e6721)
 ## [Peep](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/peep.rar) CR: tammasun
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/17655d1e-ebf1-4aac-9c5f-2c3607bc4321)
-## [Demonfire Knife](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/demonfire.rar) CR: warrenmitsuwa
+## [Yakuza - Demonfire Knife](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/demonfire.rar) CR: warrenmitsuwa
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7e79b568-8ef8-44bd-bbd5-266abf30d05d)
 ## [Boy Kisser Plush](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/Boykisser.rar) CR: malactus
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/55f6106a-462a-4e96-8461-3bdc039aa3ca)
@@ -15,7 +15,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/527465fd-664a-4248-9b6f-89c19399f9c0)
 ## [Rx-78-2 Gundam](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/rx782.rar) CR: evactouch
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5491100c-e64b-4cd4-9255-1ab15f9081c6)
-## [Reimu Fumo](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/reimu.rar) CR: voidoftheaggadboingyboofhash6426
+## [Touhou - Reimu Fumo](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/reimu.rar) CR: voidoftheaggadboingyboofhash6426
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b60c89f0-35ed-4a95-87b9-886b703f3a74)
 ## [Orange](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/orange.rar) CR: voidoftheaggadboingyboofhash6426
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/16953b52-2871-4cf2-a2b6-8a3251348baa)

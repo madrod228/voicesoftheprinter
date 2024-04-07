@@ -9,11 +9,11 @@
 ![pillows_demo](https://github.com/madrod228/voicesoftheprinter/assets/9602000/0e38ed0f-ac93-4cef-a587-58465303305d)
 ## [Kerfus Pillows](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/Kerfus%20Pillows.rar) CR: akisephila .fluffluff
 ![318966303-ea8ab469-f338-40f4-b1b5-910ccf03846a](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1dd71ddf-32ef-4faf-91f6-5e2c3ab217b5)
-## [MNHR Body](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/MNHRBody.rar) CR: nulltoast
+## [Signalis - MNHR Body](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/MNHRBody.rar) CR: nulltoast
 ![mnhr body nulltoast](https://github.com/madrod228/voicesoftheprinter/assets/9602000/be620214-83b6-4af5-93ce-0525ca21c1a5)
 ## [Tables and Chairs](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/Modern_Cafe_Table_and_Chairs_by_.fluffluff.rar) CR: .fluffluff
 ![table and chairs](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5cebd6f3-494f-4e3f-bea0-bfa78e8d8eb1)
-## [Support Car](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/Support_Car.rar) CR: galeem
+## [MegaMan - Support Car](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/Support_Car.rar) CR: galeem
 ![Support Car](https://github.com/madrod228/voicesoftheprinter/assets/9602000/48c17322-7188-4d87-a539-82ad15d8b778)
 ## [c96](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20038/c96_ScorchedIce.zip) CR: scorchedice
 ![c96 dcorchedice](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4809f16e-7074-4605-b166-18eab3880bd8)

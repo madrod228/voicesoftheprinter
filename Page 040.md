@@ -21,13 +21,13 @@ Image Required
 ![its_sasha coal](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8620462b-e73c-4224-b100-42050d1e4f05)
 ## [Ms Ariral](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/ms_ariral_plush.rar) CR: tammasun
 Image Required
-## [Donkey](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/donkey.rar) CR: endocryne87  tuwuewoof
+## [Shrek - Donkey](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/donkey.rar) CR: endocryne87  tuwuewoof
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/663825e5-3d77-442e-9b69-23420d899f10)
 ## [Shrimp (The Upturned)](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/shrimp.rar) CR: its_sasha
 ![its_sasha shrimp](https://github.com/madrod228/voicesoftheprinter/assets/9602000/fa53ee38-4711-42c3-844a-20614b32e5d6)
 ## [Sus Amongus](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/sus.rar) CR: endocryne87 
 ![SUSSY_AMONGUS endocryne87](https://github.com/madrod228/voicesoftheprinter/assets/9602000/095fea12-9653-4552-9dcc-e85552937743)
-## [Twilight Sparkle](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/twilight-sparkle.rar) CR: fallkyrielynner endocryne87 mylittlepony com
+## [My Little Pony - Twilight Sparkle](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/twilight-sparkle.rar) CR: fallkyrielynner endocryne87 mylittlepony com
 ![fallkyrielynner endocryne87 mylittlepony com](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ab283511-1b2f-4939-bd7e-febb0811a94b)
 
 ### [Page 39](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20039.md)  | [Page 41](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20041.md)
