@@ -19,14 +19,14 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a853c6d7-d1df-4b6c-9867-f7254cc3f742)
 ## [UFO Satanic Terror](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/UFO%20Satanic%20Terror%20by%20ujmeade.rar) CR: ujmeade .fluffluff
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d632edde-49bf-4b82-a5a8-67428c3c1de6)
-## [Gun Pack 1](https://cdn.discordapp.com/attachments/1132040858343059638/1218363942813044917/Gun_Pack_1_by_named_name1235.rar?ex=660764d8&is=65f4efd8&hm=46fcf6019d93dae62c9705455121a7227a7b7fcf7a242f5f0b567891dcad3b01&) CR: named_name1235
+## Gun Pack 1 [P1](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%201-1.rar) [P2](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%201-2.rar) [P3](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%201-3.rar) [P4](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%201-4.rar) [P5](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%201-5.rar)  CR: named_name1235
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c92ecac2-bf46-44ec-a9b4-15fe288cd4a4)
+## Gun Pack 2 [P1](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%202-1.rar) [P2](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%202-2.rar) [P3](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%202-3.rar) [P4](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%202-4.rar) [P5](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%202-5.rar) [P6](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%202-6.rar) [P7](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%202-7.rar) [P8](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Gunpack%202-8.rar)  CR: named_name1235
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5e9a1d8b-fb8e-4f01-b969-f5ac3ebaf80b)
 ## [Printable PC](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Printable%20PC%20by%20cleaninglynx.rar) CR: cleaninglynx
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5bf39fac-fd19-43ce-a124-a71756cf1fee)
 ## [Funny Bear](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Funny%20Bear%20by%20named_name1235.rar) CR: named_name1235
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/be363be0-1e5d-4662-871b-e186724d18de)
-## [Gun Pack 2](https://cdn.discordapp.com/attachments/1132040858343059638/1218363943320420362/Gun_Pack_2_by_named_name1235.rar?ex=660764d8&is=65f4efd8&hm=7c501a6bcdb040e02e9c19fa076157daeea573f9feb6ffa759a9095d9a284f72&) CR: named_name1235
-![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/5e9a1d8b-fb8e-4f01-b969-f5ac3ebaf80b)
 ## [Signalis - Penrose](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Penrose%20(Signalis)%20by%20lespoog.rar) CR: lespoog
 ![VotV   12_27_2023 3_09_42 PM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3fcc74d3-8075-4991-b7b9-7ed7ebc55a9f)
 
