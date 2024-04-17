@@ -25,7 +25,9 @@ Image Required
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/852eae53-ede7-4409-bae0-2ccf450703a5)
 ## [Rushia](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20043/rushia.rar) CR: kartunhren
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/811ba5d4-41ba-4b7f-a8e8-7568e81c200b)
-## []() CR: 
-## []() CR: 
+## [Alilal](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20043/Alilal.zip) CR: lukasss101
+![lukasss101 allial](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d0d0c440-ff37-497e-ab67-94d96845241f)
+## [Arir Shield](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20043/arirshield.rar) CR: czechperson
+![czechperson](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d0f1113d-62f0-4f78-aac5-6c476d627b58)
 
 ### [Page 42](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20042.md)  | [Page 44](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20044.md)
