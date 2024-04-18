@@ -1,13 +1,3 @@
-# NOTICE VERY IMPORTANT
-As of Update D07 most prints are now broken with the new collision system. We will try and update all the prints with the new collision system, but this will take time please have Patience.
-### As of right now Pages 1-30 and 32-43 are fixed
-
-
-# LOOK HERE
-![artworks-Uii8SMJvNPxy8ePA-romBoQ-t500x500](https://github.com/madrod228/voicesoftheprinter/assets/9602000/93612c5d-ecf8-44c9-bb14-235805336cf2)
-# LOOK HERE
-
-
 # Info
 This is a Github containing all the 3D prints uploaded to [3D Print forum](https://discord.com/channels/512287844258021376/1132040858343059638) in the EternityDev Discord. Updated by multiple indivuduals to ensure it wont be deleted like the last one.
 
