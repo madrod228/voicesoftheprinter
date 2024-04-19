@@ -29,3 +29,6 @@ image required
 ![term skingebinge](https://github.com/madrod228/voicesoftheprinter/assets/9602000/758ec765-d368-4561-b12f-a6b90ba01e09)
 ## []() CR: 
 ## []() CR: 
+
+
+### [Page 45](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20045.md)  | [Page 47](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20047.md)
