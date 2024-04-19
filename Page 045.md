@@ -31,3 +31,5 @@
 [image requried]
 ## [Troubleshoot Ariral](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20045/troubleshoot.rar) CR: fishyviolet
 ![fishyviolet ariral](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8e8cf983-e3f5-4655-9a6b-7af9be8e3d15)
+
+### [Page 44](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20044.md)  | [Page 46](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20046.md)
