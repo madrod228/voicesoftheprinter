@@ -29,3 +29,5 @@
 ## [Shrimp](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20044/shrimp.rar) CR: endocryne87 tuwuewoof
 ![endocryne87 tuwuewoof](https://github.com/madrod228/voicesoftheprinter/assets/9602000/bd889f8a-99f2-4b33-8680-089ff4561664)
 ## []() CR: 
+
+### [Page 43](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20043.md)  | [Page 45](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20045.md)
