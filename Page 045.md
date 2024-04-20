@@ -28,7 +28,7 @@
 ## [Guitars](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20045/guitaramp_pack.rar) CR: vitos21
 ![guitar vitos21](https://github.com/madrod228/voicesoftheprinter/assets/9602000/381ad77c-62e1-4872-a8ac-b02aeb8c6ea8)
 ## [Hexagon plush](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20045/hexagonplush%20thehecker.%20.rar) CR: thehecker.
-[image requried]
+![Voices of the Void   4_20_2024 11_18_23 AM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/88871f6d-1b22-4776-89da-96d14e9be3b1)
 ## [Troubleshoot Ariral](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20045/troubleshoot.rar) CR: fishyviolet
 ![fishyviolet ariral](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8e8cf983-e3f5-4655-9a6b-7af9be8e3d15)
 
