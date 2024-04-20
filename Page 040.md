@@ -10,7 +10,7 @@
 ## [Hatsune Argemiku Goodsmile](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/Hatsune_Argemiku_GS.rar) CR: killerblade555
 ![Voices_of_the_Void_3_27_2024_10_53_03_PM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2544cf43-ad26-4c20-8a2e-2c4d3deb72f7)
 ## [Randy Bear](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/RandyBear.zip) CR: corporatecapitalism
-Image Required
+![Voices of the Void   4_20_2024 11_28_05 AM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4dffa4ab-c1d7-4bf5-8baf-0c6bae7ccfe8)
 ## [Amyth](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/amyth.rar) CR: disfigure3583
 ![disfigure3583](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a0f065ee-d376-494e-bc1d-4333e9d1d61e)
 ## [Argem Kel](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/arg_kel.rar) CR: tammasun
@@ -20,7 +20,7 @@ Image Required
 ## [Coalgemia](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/argemia_plush_coal.rar) CR: its_sasha
 ![its_sasha coal](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8620462b-e73c-4224-b100-42050d1e4f05)
 ## [Ms Ariral](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/ms_ariral_plush.rar) CR: tammasun
-Image Required
+![Voices of the Void   4_20_2024 11_19_07 AM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/85ca4dc2-ef8f-449f-abb6-1e6de1e61874)
 ## [Shrek - Donkey](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/donkey.rar) CR: endocryne87  tuwuewoof
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/663825e5-3d77-442e-9b69-23420d899f10)
 ## [Shrimp (The Upturned)](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20040/shrimp.rar) CR: its_sasha
