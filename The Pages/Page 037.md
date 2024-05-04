@@ -30,4 +30,4 @@
 ## [Tsar Bomba](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20037/tb.rar) CR: roomba8681
 ![318961961-100f24b7-eed0-4ef1-9ed6-b752e4c992d6](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7342d2f2-5913-46c3-89f2-5af486cacd17)
 
-### [Page 36](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20036.md)  | [Page 38](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20038.md)
+### [Page 36](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20036.md)  | [Page 38](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20038.md)
