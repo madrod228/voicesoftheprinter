@@ -32,4 +32,4 @@
 ## [The Amazing Digital Circus - Jax](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20013/Jax_by_monique_santificer.rar) CR: monique_santificer
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/dd29d5a1-7fb8-4573-ba23-144d744e7d7c)
 
-### [Page 12](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20012.md)  | [Page 14](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20014.md)
+### [Page 12](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20012.md)  | [Page 14](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20014.md)
