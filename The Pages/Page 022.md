@@ -30,4 +30,4 @@
 ## [Wine](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/Wine.rar) and [Polish Mead](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20022/Polish%20Mead.rar) CR: killerblade555
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f5210a28-4790-4ed5-b2b3-fc2b9e04e1f1)
 
-### [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20021.md)  | [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20023.md)
+### [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20021.md)  | [Page 23](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20023.md)
