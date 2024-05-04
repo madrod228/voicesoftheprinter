@@ -30,4 +30,4 @@
 ## [Basking Shark](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20014/Basking%20Shark%20by%20dr.bob.rar) CR: dr.bob.
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/46091ca2-3e36-4570-9b64-dda3380a6a6b)
 
-### [Page 13](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20013.md)  |  [Page 15](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20015.md)
+### [Page 13](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20013.md)  |  [Page 15](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20015.md)
