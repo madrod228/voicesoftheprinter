@@ -30,4 +30,4 @@
 ## [Astolfo Bean Plushie](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20001/Astolfo.rar) CR: puppycat
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/af8cb2b9-674b-4155-a645-0301d21db58e)
 
-### [Page 2](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20002.md)
+### [Page 2](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20002.md)
