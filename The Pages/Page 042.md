@@ -32,4 +32,4 @@
 ![Voices of the Void   4_20_2024 11_24_38 AM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/857d8565-b98d-4738-92c8-a66dac134c80)
 
 
-### [Page 41](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20041.md)  | [Page 43](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20043.md)
+### [Page 41](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20041.md)  | [Page 43](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20043.md)
