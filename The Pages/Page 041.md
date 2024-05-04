@@ -31,4 +31,4 @@
 ## [Contraband Pack](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20041/Contraband%20Pack.rar) CR: corporatecapitalism 
 ![dfjfdsz corporatecapitalism](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d258b8ff-9cc4-4c4d-8b4c-d3dd0566517c)
 
-### [Page 40](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20040.md)  | [Page 42](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20042.md)
+### [Page 40](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20040.md)  | [Page 42](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20042.md)
