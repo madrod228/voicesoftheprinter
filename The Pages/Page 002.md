@@ -30,4 +30,4 @@
 ## [Monster Energy Can + Crushed Cans](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20002/Monster%20Energy%20Cans.rar) CR: anonymousmeat
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ae2f4a09-8c17-42cd-a2fc-e23f44580b71) ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ab1b3360-66cf-41ea-861e-5f201ab1f980)
 
-### [Page 1](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20001.md)  | [Page 3](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20003.md)
+### [Page 1](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20001.md)  | [Page 3](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20003.md)
