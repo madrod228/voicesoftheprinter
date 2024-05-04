@@ -32,4 +32,4 @@
 ## [Non Hypno Boykisster](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20020/Boykisser_Non_Hypno.rar) CR: ujmeade sahneisttoll 
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/dda4759d-da76-4ee7-870e-d56fc8edcb24)
 
-### [Page 19](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20019.md)  | [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20021.md)
+### [Page 19](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20019.md)  | [Page 21](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20021.md)
