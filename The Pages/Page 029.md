@@ -28,4 +28,4 @@
 ## [Pool Chair](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20029/Pool_Chair_killerblade555.rar) CR: killerblade555
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/f2269599-8498-4fb6-880c-aad115a1c3cd)
 
-### [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20028.md)  | [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20030.md)
+### [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20028.md)  | [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20030.md)
