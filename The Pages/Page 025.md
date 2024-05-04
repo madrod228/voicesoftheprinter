@@ -26,4 +26,4 @@
 ## [Lethal Company - Hoarding Bug](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20025/Hoarding%20Bug%20can%20hold%20objects%20by%20sleepdeprivedgaming_88431.rar) can hold objects  CR: sleepdeprivedgaming_88431
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/42e5f830-9ab6-48b0-856b-d28b0692d006)
 
-### [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20024.md)  | [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20026.md)
+### [Page 24](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20024.md)  | [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20026.md)
