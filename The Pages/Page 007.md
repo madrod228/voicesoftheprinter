@@ -30,4 +30,4 @@
 ## [Halo Rat](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20007/Halo_Rat_by_fritzlancastor.rar) CR: fritzlancastor
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4496f850-b83c-4db6-9f24-70d9c4b6c851)
 
-### [Page 6](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20006.md)  | [Page 8](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20008.md)
+### [Page 6](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20006.md)  | [Page 8](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20008.md)
