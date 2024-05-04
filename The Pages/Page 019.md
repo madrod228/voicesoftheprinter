@@ -30,4 +30,4 @@
 ## [Customizable Books](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20019/Customizable%20Books%20by%20.fluffluff.rar) CR: .fluffluff
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/66660def-882c-407a-8813-aa4146397705)
 
-### [Page 18](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20018.md)  | [Page 20](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20020.md)
+### [Page 18](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20018.md)  | [Page 20](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20020.md)
