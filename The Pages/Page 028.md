@@ -30,4 +30,4 @@
 ## [N](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20028/N%20by%20sleepdeprivedgaming_88431.rar) CR: sleepdeprivedgaming_88431
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/4ecd0b71-064d-41d3-b49e-1ba2909d0f9c)
 
-### [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20027.md)  | [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20029.md)
+### [Page 27](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20027.md)  | [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20029.md)
