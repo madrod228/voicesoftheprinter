@@ -30,4 +30,4 @@
 ## [Arir Shield](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20043/arirshield.rar) CR: czechperson
 ![czechperson](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d0f1113d-62f0-4f78-aac5-6c476d627b58)
 
-### [Page 42](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20042.md)  | [Page 44](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20044.md)
+### [Page 42](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20042.md)  | [Page 44](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20044.md)
