@@ -31,4 +31,4 @@ image required
 ## []() CR: 
 
 
-### [Page 45](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20045.md)  | [Page 47](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20047.md)
+### [Page 45](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20045.md)  | [Page 47](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20047.md)
