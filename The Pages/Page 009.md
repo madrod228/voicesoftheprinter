@@ -30,4 +30,4 @@
 ## [Quake 1 - Vore](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20009/Quake_Vore.rar) CR: sahneisttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4ad93384-e66c-47f3-b5fb-1e96e12632d2)
 
-### [Page 8](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20008.md)  | [Page 10](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20010.md)
+### [Page 8](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20008.md)  | [Page 10](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20010.md)
