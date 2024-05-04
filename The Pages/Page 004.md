@@ -30,4 +30,4 @@
 ## [Half Life 2 - Vending Machine](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20004/vendingmachine.rar) CR: michuklon
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c46d0540-b9e9-4f68-9bed-ea95a3652c83)
 
-### [Page 3](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20003.md)  | [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20005.md)
+### [Page 3](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20003.md)  | [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20005.md)
