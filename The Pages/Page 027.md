@@ -30,4 +30,4 @@
 ## [Half Life 2 - Combine Turret](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20027/HL2_Combine_Turret.rar) CR: sahneisttoll
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/20460cff-2f4a-49a3-b183-cb344a130486)
 
-### [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20026.md)  | [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20028.md)
+### [Page 26](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20026.md)  | [Page 28](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20028.md)
