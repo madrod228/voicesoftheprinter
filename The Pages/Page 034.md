@@ -30,4 +30,4 @@
 ## [Team Fortress 2 - Tiny Desk Engineer](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20034/tiny_desk_engineer.rar) CR: sleepdeprivedgaming_88431
 ![Tiny Desk Engie Sleep](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f685bafe-6c21-4c5d-8b1b-93c9e4c10f6b)
 
-### [Page 33](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20033.md)  | [Page 35](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20035.md)
+### [Page 33](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20033.md)  | [Page 35](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20035.md)
