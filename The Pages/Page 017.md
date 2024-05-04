@@ -22,4 +22,4 @@
 ## [Genshin impact - Shinji Furina](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20017/Shinji%20Furina%20by%20lespoog.rar) CR: lespoog
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d67bc6cc-ccdb-42a8-849c-2858d4a0892a)
 
-### [Page 16](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20016.md)  | [Page 18](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20018.md)
+### [Page 16](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20016.md)  | [Page 18](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20018.md)
