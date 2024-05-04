@@ -24,4 +24,4 @@
 ## [Curtains and Kerftains](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20016/Curtains%20and%20Kerftains%20by%20mehwoh%20(fitted%20for%20pre-0.7%20base).rar) CR: mehwoh OBSELETE FOR 0.7
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/cc563f94-ead7-4141-a38d-895d0d9ae755)
 
-### [Page 15](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20015.md)  | [Page 17](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20017.md)
+### [Page 15](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20015.md)  | [Page 17](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20017.md)
