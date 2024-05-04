@@ -30,4 +30,4 @@
 ## [The Mystery of the Druids - Detective Lowry](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20010/Lowry.7z) CR: .lenden
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/821ff458-7689-4494-96a5-9395a7837b1f)
 
-#### [Page 9](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20009.md)  | [Page 11](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20011.md)
+#### [Page 9](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20009.md)  | [Page 11](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20011.md)
