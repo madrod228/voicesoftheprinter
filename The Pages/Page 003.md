@@ -30,4 +30,4 @@
 ## [VotV - Kel Plushie](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20003/Kel%20Plush.rar) CR: tammasun
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c862c162-a5b3-4014-b2a3-e8cc97a674f7)
 
-### [Page 2](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20002.md)  | [Page 4](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20004.md)
+### [Page 2](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20002.md)  | [Page 4](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20004.md)
