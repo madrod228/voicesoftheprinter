@@ -29,4 +29,4 @@
 ## [Ultrakill - Fish Pack](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20031/Ultrakill%20Fishes.rar) CR: cleaninglynx
 ![Screenshot (923)](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/670ff4e0-c028-4d65-ba61-e7021ea14ee8)
 
-### [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20030.md)  | [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20032.md)
+### [Page 30](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20030.md)  | [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20032.md)
