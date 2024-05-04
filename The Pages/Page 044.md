@@ -30,4 +30,4 @@
 ![endocryne87 tuwuewoof](https://github.com/madrod228/voicesoftheprinter/assets/9602000/bd889f8a-99f2-4b33-8680-089ff4561664)
 ## []() CR: 
 
-### [Page 43](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20043.md)  | [Page 45](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20045.md)
+### [Page 43](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20043.md)  | [Page 45](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20045.md)
