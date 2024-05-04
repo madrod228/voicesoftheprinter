@@ -30,4 +30,4 @@
 ## [Ipad](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20015/Ipad%20by%20jettank123.rar) CR: jettank123
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/377313ab-058d-44c1-a043-d0d20a525ade)
 
-### [Page 14](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20014.md)  | [Page 16](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20016.md)
+### [Page 14](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20014.md)  | [Page 16](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20016.md)
