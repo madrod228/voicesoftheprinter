@@ -30,4 +30,4 @@
 ## [Oneshot - Niko](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20011/Niko_With_Sun_by%20_pockpock.rar) CR: _pockpock
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3399a248-2a9f-43f9-b3e1-fcaae108b870)
 
-### [Page 10](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20010.md)  | [Page 12](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20012.md)
+### [Page 10](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20010.md)  | [Page 12](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20012.md)
