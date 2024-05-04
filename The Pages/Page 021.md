@@ -30,4 +30,4 @@
 ## [Signalis - Penrose](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20021/Penrose%20(Signalis)%20by%20lespoog.rar) CR: lespoog
 ![VotV   12_27_2023 3_09_42 PM](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3fcc74d3-8075-4991-b7b9-7ed7ebc55a9f)
 
-### [Page 20](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20020.md)  | [Page 22](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20022.md)
+### [Page 20](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20020.md)  | [Page 22](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20022.md)
