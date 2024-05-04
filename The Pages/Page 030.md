@@ -28,4 +28,4 @@
 ## [Flickers of a Distant Luminary](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20030/Flickers%20of%20a%20Distant%20Luminary%20(Iterator%20OC)%20by%20istantluminary%20firewaze.rar)  CR: istantluminary firewaze
 ![image](https://github.com/SleepDeprivedGaming/voicesoftheprinter/assets/155120018/12a362d8-99dd-4605-8270-7f5989685209)
 
-### [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20029.md)  | [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20031.md)
+### [Page 29](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20029.md)  | [Page 31](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20031.md)
