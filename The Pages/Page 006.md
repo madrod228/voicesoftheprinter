@@ -30,4 +30,4 @@
 ## [TLoZ - Mastersword](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20006/Master_sword_by_fritzlancastor.rar) CR: fritzlancastor
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6ca02560-e9ce-4579-aa35-9508bebe0603)
 
-### [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20005.md)  | [Page 7](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20007.md)
+### [Page 5](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20005.md)  | [Page 7](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20007.md)
