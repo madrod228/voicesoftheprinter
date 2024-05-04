@@ -30,4 +30,4 @@
 ## [Miku Figurine](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20033/miku%20csat.zip) CR: csat
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ab53fcab-6a26-4673-80c6-61daaccc4d63)
 
-### [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20032.md)  | [Page 34](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20034.md)
+### [Page 32](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20032.md)  | [Page 34](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20034.md)
