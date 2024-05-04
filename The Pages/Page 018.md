@@ -30,4 +30,4 @@
 ## [Round Meal](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20018/Round%20Meal%20by%20watty456.rar) CR: watty456
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d5521deb-549b-4994-b9e0-faa794a7e2dd)
 
-### [Page 17](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20017.md)  | [Page 19](https://github.com/madrod228/voicesoftheprinter/blob/main/Page%20019.md)
+### [Page 17](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20017.md)  | [Page 19](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20019.md)
