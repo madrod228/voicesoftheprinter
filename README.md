@@ -54,6 +54,11 @@ There are tutorials made if you need help making prints, or need to make large p
 ### [Page 44](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20044.md)
 ### [Page 45](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20045.md)
 ### [Page 46](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20046.md)
+### [Page 47](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20047.md)
+### [Page 48](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20048.md)
+### [Page 49](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20049.md)
+### [Page 50](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20050.md)
+
 
 
 # Credits
