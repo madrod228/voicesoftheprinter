@@ -32,3 +32,5 @@
 ![roboshark1019 old pc](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2cf6bd92-d12f-4aeb-8dbd-19723cbdbb44)
 ## [Water Cooler](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20049/watercooler1.rar) CR: roboshark1019
 ![water cooler](https://github.com/madrod228/voicesoftheprinter/assets/9602000/bcc2a393-d7ef-440f-bbd5-a9d3fa552c90)
+
+### [Page 48](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20048.md)  | [Page 50](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20050.md)
