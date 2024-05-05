@@ -28,6 +28,7 @@
 ![siddly mace](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f7261ff1-3a57-4bf8-a379-a78a28e9930a)
 ## [Shrimp](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20044/shrimp.rar) CR: endocryne87 tuwuewoof
 ![endocryne87 tuwuewoof](https://github.com/madrod228/voicesoftheprinter/assets/9602000/bd889f8a-99f2-4b33-8680-089ff4561664)
-## []() CR: 
+## [Ariral Server Fix](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20044/ariral_fix_server.rar) CR: mr.global666  .siddly juhizzart
+![mr global666  siddly juhizzart arriral fix](https://github.com/madrod228/voicesoftheprinter/assets/9602000/7affe3f6-c94f-48e8-b2ad-b8f0e6e7d71c)
 
 ### [Page 43](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20043.md)  | [Page 45](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20045.md)
