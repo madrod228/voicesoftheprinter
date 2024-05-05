@@ -16,7 +16,7 @@
 ![Screenshot_Silver_The_Hedgehog yoshifan15](https://github.com/madrod228/voicesoftheprinter/assets/9602000/19714ff5-3e4f-497f-9da7-b06bbc67c335)
 ## [Stolas 5110](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20047/Stolas_5110.zip) CR: .bigboeh
 ![Phone_Front boeh](https://github.com/madrod228/voicesoftheprinter/assets/9602000/da22943a-8d82-4827-a04d-535545daa3b2)
-# [***FUCK OFF ALIENS***](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20047/bigtext.rar) CR: skingebinge
+# [***ALIEN FUCK OFF***](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20047/bigtext.rar) CR: skingebinge
 ![alien sku](https://github.com/madrod228/voicesoftheprinter/assets/9602000/f12d28c3-7c39-4ef1-8005-5327d8acc1be)
 ## [Halo CE Vehicles](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20047/halo_CE_vehicles.zip) CR: skingebinge
 ![halo vehicles](https://github.com/madrod228/voicesoftheprinter/assets/9602000/124df361-c158-4fe9-9024-ef2da2cbc28f)
