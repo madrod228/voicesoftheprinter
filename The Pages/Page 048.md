@@ -31,3 +31,5 @@
 ![Terminal Daisycat_](https://github.com/madrod228/voicesoftheprinter/assets/9602000/78b9bea2-2258-4270-a947-15a1e77c07ac)
 ## [Weewr](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20048/weewr.rar) CR:kazoo7420
 ![ka weewer](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6bc0f8e9-fbb9-433f-a0d5-8d0989370157)
+
+### [Page 47](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20047.md)  | [Page 49](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20049.md)
