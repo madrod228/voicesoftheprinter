@@ -30,3 +30,5 @@ Image Required
 ![Screenshot_2024-04-30_232654](https://github.com/madrod228/voicesoftheprinter/assets/9602000/210b01fe-5966-4a0b-b857-1fd7bb9cda6e)
 ## [Tattletale](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20050/tattteltale.rar) CR: roboshark1019
 ![Screenshot_2024-05-01_180359](https://github.com/madrod228/voicesoftheprinter/assets/9602000/45a8bd9c-47a7-4e77-8744-75f4f55924ca)
+
+### [Page 49](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20049.md)  | [Page 51](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20051.md)
