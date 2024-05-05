@@ -27,8 +27,10 @@ image required
 ![daisycat_ swagbag](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c828e4bb-d7dd-418b-819c-a58dbf7adb88)
 ## [Warhammer Terminator](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20046/terminator.rar) CR: skingebinge
 ![term skingebinge](https://github.com/madrod228/voicesoftheprinter/assets/9602000/758ec765-d368-4561-b12f-a6b90ba01e09)
-## []() CR: 
-## []() CR: 
+## [Metal Gear Ray](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20046/ray.rar) CR: skingebinge
+![sku ray](https://github.com/madrod228/voicesoftheprinter/assets/9602000/e79f392d-80ac-448d-931e-78d520d5af79)
+## [Metal Gear Rex](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20046/rex.rar) CR: skingebinge
+![gear sku](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d7997188-fe9f-45ba-bc35-fe3aff92f21d)
 
 
 ### [Page 45](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20045.md)  | [Page 47](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20047.md)
