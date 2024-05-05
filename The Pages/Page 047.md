@@ -30,3 +30,5 @@
 Image Required
 ## [Pills](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20047/pills.rar) CR: vomit.self
 Image Required
+
+### [Page 46](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20046.md)  | [Page 48](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20048.md)
