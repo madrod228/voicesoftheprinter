@@ -4,7 +4,7 @@
 ![Screenshot_2024-05-02_185145](https://github.com/madrod228/voicesoftheprinter/assets/9602000/a43fa6c4-e059-4bed-8c9d-1c8990b13d11)
 ## [Fallout Cram](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20051/CRAM.rar) CR: roboshark1019
 ![Cram fal](https://github.com/madrod228/voicesoftheprinter/assets/9602000/20c83f8a-021a-4729-b4ac-a57bf73e7835)
-## [Callisto the Ariral](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20051/CallistotheAriral.rar) CR: 
+## [Callisto the Ariral](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20051/CallistotheAriral.rar) CR: cleaninglynx
 ![cleaninglynx tdfhsfhf](https://github.com/madrod228/voicesoftheprinter/assets/9602000/eeb69410-9479-4183-b059-ef2bf0c6d8a6)
 ## [Candle](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20051/Candle.zip) CR: drfluffenstein
 ![CANDLES drfluffenstein](https://github.com/madrod228/voicesoftheprinter/assets/9602000/258dcfa7-e94a-4e01-a174-e3e3fa5c062d)
