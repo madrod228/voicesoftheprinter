@@ -30,3 +30,5 @@ Image Required
 ![SUSSIE its_sasha](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8b0d7269-34fc-41a8-8d78-f64e522602a3)
 ## [Tapes](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20051/tapes.zip) CR: vomit.self
 ![tapes vomit self](https://github.com/madrod228/voicesoftheprinter/assets/9602000/e6d8fb9d-b786-47cf-92b1-9c68e877b77a)
+
+### [Page 50](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20050.md)  | [Page 52](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20052.md)
