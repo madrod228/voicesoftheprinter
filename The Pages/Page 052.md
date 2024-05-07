@@ -20,3 +20,5 @@ Image Required
 ## []() CR: 
 ## []() CR: 
 ## []() CR: 
+
+### [Page 51](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20051.md)  | [Page 53](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20053.md)
