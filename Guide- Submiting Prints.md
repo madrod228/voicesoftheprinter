@@ -1,5 +1,6 @@
 # Printer Submissions
 You want to have your print submitted for the archive and arent in the discord? Well here you can submit them.
+
 If you are in the discord and have posted a model in 3D Print forum. It will be uploaded. No need to submit via email unless its about an update to the model or if you want it removed.
 
 Anyways here is what you need to know for submitting prints.
