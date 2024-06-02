@@ -19,6 +19,7 @@ Image Required
 ## [Hand Unit](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20052/Hand_Unit.rar) CR: roboshark1019
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/8dcf68fe-6565-41a2-aa03-184337551a50)
 ## [Lawn Mower](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20052/LawnMower.rar) CR: roboshark1019
+![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/758f5e4b-fb31-448a-b413-fecdaf180a0f)
 ## [Patpat](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20052/PatPat.rar) CR: roboshark1019
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c0b9da73-70ec-496a-ab02-64f6b5293e0f)
 ## [Patrick Sitting](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20052/Patrick_Star_Sitting.rar) and [Sleeping](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20052/Patrick_Star_Sleeping.rar) CR: .bigboeh
