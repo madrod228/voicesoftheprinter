@@ -77,8 +77,10 @@ madrod228 started this specific repo but im passing it over to killerblade555 si
 
 killerblade555 has done mostly everything else
 
-Sleep Deprived Gaming has done pages 26-32
+Special Thanks to .flufffluff and sahneisttoll for fixing models to be compatible with 0.7+
+
+Sleep Deprived Gaming for making pages 26-32
 
 Sahneisttoll for the VOTV Printer Guide
 
-DatboiZyion works on crediting those who have their models on the page
+DatboiZyion for helping credit people during the github overhaul
