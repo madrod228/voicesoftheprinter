@@ -67,6 +67,9 @@ You want to submit prints and you arent in the discord? Follow this!
 ### [Page 52](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20052.md)
 ### [Page 53](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20053.md)
 ### [Page 54](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20054.md)
+### [Page 55](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20055.md)
+### [Page 56](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20058.md)
+### [Page 57](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Pages/Page%20057.md)
 
 
 # Credits
