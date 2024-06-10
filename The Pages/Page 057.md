@@ -18,9 +18,13 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ef73e941-1ae1-4ecd-a444-5c70216c1f9c)
 ## [Portal Cores Pack 4](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20057/Portal_2_Cores_Pack_Part_4.rar) CR: roboshark1019
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/ba8d2724-93e6-48b6-bc36-15b8345a7645)
-## []() CR: 
-## []() CR: 
-## []() CR: 
-## []() CR: 
+## [Claymore Roomba](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20057/Claymore_roomba.7z) CR: ferriium
+![preview](https://github.com/madrod228/voicesoftheprinter/assets/9602000/76effbef-85a4-49d6-bb2a-9f4b6bc86be3)
+## [Sleeping Omega Kerfur](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20057/SleepingOmegaKerfur_couch.rar) CR: _pockpock
+![unnamed](https://github.com/madrod228/voicesoftheprinter/assets/9602000/52b5f798-5f0a-4cf1-a99a-4bd55118171e)
+## [Enclave Vaultboy Cutout](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20057/VaultBoyCardboardCutout_For_0.7.0.zip) CR: Tonvinundfloria
+![unnamed](https://github.com/madrod228/voicesoftheprinter/assets/9602000/6876c751-15aa-43a5-86d5-5ac6395c2244)
+## [Argem Spider](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20057/argem_spider.zip) CR: NeonBird7564
+![argemia](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4e7d0990-0cfa-47c7-9aa4-90c42520820b)
 ## []() CR: 
 ## []() CR: 
