@@ -2,9 +2,10 @@
   - 1 Meter in Blender = 1 Centimeter in VotV/UE4
   - ## Naming norms for the Printer
     - model_name_example``.obj``
-    - model_name_example``.png``
-    - model_name_example``_pbr.png``
-    - model_name_example``_normal.png``
+    - ``diffuse_``model_name_example``.png``
+    - ``pbr_``model_name_example.``png``
+    - ``normal_``model_name_example``.png``
+    - ``emissive_``model_name_example``.png``
   - ## N-Gons and Vert Count
 
     - ### !!QUIRK!! Vert count being 3x-3.5x more than in Blender <br>
