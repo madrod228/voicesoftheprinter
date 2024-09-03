@@ -1,10 +1,14 @@
 # VotV 3D Printer a rough Guide
   - 1 Meter in Blender = 1 Centimeter in VotV/UE4
   - ## Naming norms for the Printer
-    - model_name_example``.obj``
-    - model_name_example``.png``
-    - model_name_example``_pbr.png``
-    - model_name_example``_normal.png``
+    - model_name_example``.obj``  
+    - ``diffuse_``model_name_example``.png``
+    - ``pbr_``model_name_example.``png``
+    - ``normal_``model_name_example``.png``
+    - ``emissive_``model_name_example``.png``
+  - ## Update 0.8.0 Note
+    Update 0.8.0 changed the naming scheme for textures, so for any older models that you want to print make sure to move the texture type to the back of the filename as shown above instead of at the front of the filename. 
+  
   - ## N-Gons and Vert Count
 
     - ### !!QUIRK!! Vert count being 3x-3.5x more than in Blender <br>
@@ -59,19 +63,19 @@
       - It will might print but throw warnings
     - Pre-Alpha 0.6.3 (pa063b_0003)
       - if multiple are present it will only print the first one and ignore all others
-  -  ### ``model_name_example.png`` 
+  -  ### ``diffuse_model_name_example.png`` 
       - is the Color/Diffuse and the Alpha/Transparency (on )
       - **Alpha/Transparency are clipped** when the transparency goes below 107/255 it will start to clip. to Mimic how VotV displays Alpha <br>
 	   go to ``Properties``>``Material``>``Viewport Display`` and set ``Blend Mode`` to ``Alpha Clip`` then set ``Clip Threshold`` to 0.33
-  - ### ``model_name_example_pbr.png`` PBR Channels
+  - ### ``pbr_model_name_example.png`` PBR Channels
       - Red Channel = Metallic
 	  - Green Channel = Specular
 	  - Blue Channel = Roughness
 	  - Alpha Channel = Alpha (up to version 061, not needed anymore on/after 062)
-  - ### ``model_name_example_normal.png`` Normal Map
+  - ### ``normal_model_name_example.png`` Normal Map
     - VotV/Unreal Engine uses the DirectX Normal Map format <br>
 	if your model looks a bit uncanny fix it by **``inverting/flipping the Green Channel``**
-	- if you want to get rid of the normal map message make a blank 16x16 ``model_name_example_normal.png`` that has rgb(128,128,255) as a single color
+	- if you want to get rid of the normal map message make a blank 16x16 ``normal_model_name_example.png`` that has rgb(128,128,255) as a single color
 
 ### [How to create PBRs by Xiphi](https://www.youtube.com/watch?v=1knCUpq7Yz0&t)
 ![dsad](https://github.com/madrod228/voicesoftheprinter/assets/9602000/d2af6236-e5d3-4aae-8e22-75eccd2d1ea4)
