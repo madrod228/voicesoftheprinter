@@ -15,7 +15,7 @@ First off You will want to rename the stick the model you want to print. I'll be
 Now the model of Big Kel is named as so.
 
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/3ad2af3d-d791-45a1-9ecf-bbceb8065a15)
- 
+
 So we will rename the model of the Stick to kelbigtest as well. You can also go ahead and put the textures of the model in the printer folder as well.
 
 Now print the model.
