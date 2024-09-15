@@ -84,3 +84,5 @@ Sleep Deprived Gaming for making pages 26-32
 Sahneisttoll for the VOTV Printer Guide
 
 DatboiZyion for helping credit people during the github overhaul
+
+.vamist for fixing models to be compatible with 0.8+
