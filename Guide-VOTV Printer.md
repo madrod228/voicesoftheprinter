@@ -83,7 +83,7 @@
       ![goodcollider](https://github.com/madrod228/voicesoftheprinter/assets/93410850/a4cf72f4-def5-459f-8327-a4a46a182d03)
 
 - # Issues?
-  - Try to not have any N-Gons. N-Gons are Faces of a Mesh that have more than ``4 Vertices``. <br>
+  - ### Try to not have any N-Gons. N-Gons are Faces of a Mesh that have more than ``4 Vertices``. <br>
       Unreal Engine pokes Faces with more than 4 Vert's for some reason instead of triangulating the Faces, creating the mess below
       ![pokerfacelowq](https://github.com/madrod228/voicesoftheprinter/assets/93410850/a0cf1b7d-d55b-4c07-a379-cda6679a8484) <br>
       to have an easy fix, tick this on Export (or Triangulate manually before exporting) <br>
@@ -91,6 +91,14 @@
       its an easy "fix" button but will increase the Vert count by ~50%. ontop of the 3x from UE4 lol.<br>
       Pretty useful if you dont know how to retopo and just want it in the game. <br>
       What it does exactly is ``1 Quad -> 2 Triangles -> 6 Verts, N-Gons can turn into alot of Tri's, expect alot more Vert's``
+
+  - ### Texture streching 
+    This is caused by Floating point issues in UE4 addon being used and the UV \
+    ![image](https://github.com/user-attachments/assets/35fe0c89-b6fb-4730-b84b-952d790293b4) \
+    To fix it *easily* i recommend to Select the entire UV and move it by 1 in X or Y or both at the same time. \
+    so the UV is not on the grid anymore but off by 1 or 2.
+    ![image](https://github.com/user-attachments/assets/c2909efa-f800-49e8-b7be-0c228c6e51ad) \
+    The Second recommended fix is making the UV smaller by 1-3%.
    
   - ## Vert Count increase Research
     - ### Vert count being 3x-3.5x more than in Blender <br>
