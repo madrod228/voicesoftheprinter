@@ -74,13 +74,14 @@
       Meaning anything Concave Shape will be gone. \
       to create a collider, create a object and add the prefix ``UCX_``. it is Recommended to create them. \
       Since on **every startup of the savefile** it will run the Convex Hull thing.
-      Examples below on how it would affect Print's 
-      
-      Removes the Concave shape of the chair, making a huge slope in the progress and closing off the bottom of the chair 
-      ![badcollider](https://github.com/madrod228/voicesoftheprinter/assets/93410850/9ba5f1bb-2070-47a6-ac2f-f483c3a2e5e6)
-
-      You can Duplicate the Object and then seperate parts of it into their own Objects to create a more accurate Collider. 
-      ![goodcollider](https://github.com/madrod228/voicesoftheprinter/assets/93410850/a4cf72f4-def5-459f-8327-a4a46a182d03)
+      Examples below on how it would affect Print's
+      \
+      \
+      Left in checkerboard is the custom colliders \
+      around 40 of them since the object is a bit complex and time was put into it \
+      you could also just make it very simple, aka 4 sloped walls and the flat bottom.
+      ![colliderrr](https://github.com/user-attachments/assets/2ddfdd68-bba2-4ea2-bbc6-6641d19422db) \
+      on the right is with no colliders, what the game does when there is no collider given.
 
 - # Issues?
   - ### Try to not have any N-Gons. N-Gons are Faces of a Mesh that have more than ``4 Vertices``. <br>
