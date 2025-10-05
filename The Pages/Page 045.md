@@ -1,5 +1,5 @@
 # Page 45
-## [7Zip](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Archive/Page%20045/77z.7z) CR: sleepdeprivedgaming_88431
+## [7Zip](https://github.com/madrod228/voicesoftheprinter/blob/main/The%20Archive/Page%20045/7Zip.7z) CR: sleepdeprivedgaming_88431
 ![77zo sleep](https://github.com/madrod228/voicesoftheprinter/assets/9602000/2fbf5859-160d-4958-8d6d-582e746896fa)
 ## [Ariral Cyan Sit](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20045/Ariral_Blue_hair.7z) CR: mr.global666 .siddly
 ![cyan ariral](https://github.com/madrod228/voicesoftheprinter/assets/9602000/09af59d4-7421-4b83-a5d7-158653044bb4)
