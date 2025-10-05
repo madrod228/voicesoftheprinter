@@ -14,7 +14,7 @@ If you're still having trouble go to Help thread and seek assistance.
 # Guides
 ### [Printer Guide](https://github.com/madrod228/voicesoftheprinter/blob/main/Guide-VOTV%20Printer.md)
 ### [Speed Printing and Bypassing Printer limit](https://github.com/madrod228/voicesoftheprinter/blob/main/Guide-Bypass%20Limit%20and%20Speedprinting.md)
-### [Baking Texture](https://github.com/madrod228/voicesoftheprinter/blob/main/Guide-How%20to%20bake%20textures%20in%20Blender.md)
+### [Baking Texture (OUTDATED)](https://github.com/madrod228/voicesoftheprinter/blob/main/Guide-How%20to%20bake%20textures%20in%20Blender%20(OUTDATED).md)
 
 # Archive
 All Pages have **preview images**, and are therefore only 20 Prints+Previews per Page <br>
