@@ -1,3 +1,5 @@
+# [This was made when you couldn't have multiple materials on a print. You no longer need to this for prints anymore]
+
 These following instructions will teach how to bake Textures in blender when you have model with multiple textures.
 
 First You will need these 3 things open in Blender
