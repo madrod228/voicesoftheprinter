@@ -5,6 +5,12 @@ If you require more assistance or help, please Join the EternityDev Games Discor
 the link can be found under the [Voices of the Void Itch.io page](https://mrdrnose.itch.io/votv)<br>
 and check the [3D Model Discussion / Help Thread](https://discord.com/channels/512287844258021376/1240309070854881371) under the #votv-3d-printer Forum.
 
+# Printer item not appearing
+Alot of the prints on here were made before certain updates. If the file does not appear in the printer in game make sure the Folder and the OBJ are the same name. Otherwise it wont appear.
+If the file appears in the printer but has a red overlay on it change all the names in the folder to something new.
+The red overlay indicates that the item shares a name with something already in the game and cant be printed.
+If you're still having trouble go to Help thread and seek assistance.
+
 # Guides
 ### [Printer Guide](https://github.com/madrod228/voicesoftheprinter/blob/main/Guide-VOTV%20Printer.md)
 ### [Speed Printing and Bypassing Printer limit](https://github.com/madrod228/voicesoftheprinter/blob/main/Guide-Bypass%20Limit%20and%20Speedprinting.md)
