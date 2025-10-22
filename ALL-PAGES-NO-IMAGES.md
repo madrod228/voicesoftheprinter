@@ -115,7 +115,7 @@ see below
   - [Ugly Cat Cutout](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20006/ugly_cat_cutout_by_vhbc.7z)	CR: vhbc
   - [Glasses Argem](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20006/Glasses_Argem_by_nik_l0l.7z)	CR: nik_l0l
   - [Spamton Argem](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20006/Spamton_Argem_by_its_sasha.7z)	CR: its_sasha
-  - [Spore  - Steve](https://discord.com/channels/512287844258021376/1132040858343059638/1154524997340115045)	CR: sahneitsttoll
+  - [Spore  - Steve](https://github.com/madrod228/voicesoftheprinter/raw/refs/heads/main/The%20Archive/Page%20006/SporeSteve.rar)	CR: sahneitsttoll
   - [Prototype Lego Brick](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20006/Prototype_Lego_Brick_by_jettank123.7z)	CR: jettank123
   - [Animal Crossing  - Bob Big/Small](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20006/bob_by_neko3240.7z)	CR: neko3240
   - [TLoZ  - Mastersword](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20006/Master_sword_by_fritzlancastor.7z)	CR: fritzlancastor
