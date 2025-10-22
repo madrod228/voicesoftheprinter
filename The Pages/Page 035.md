@@ -23,7 +23,7 @@
 ![Mikufigure its_sasha](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1ace4fd9-2778-4e45-b198-cf039b74cbbb)
 ## [Generator](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20035/my_generatotexture_and_size_fixr.7z) CR: roomba8681
 ![Generator roomba8681](https://github.com/madrod228/voicesoftheprinter/assets/9602000/1ee3af17-5a9e-4535-a719-0a83e83aa7a4)
-## [Custom VotV - Satellite Recreation](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20035/satellite.7z) CR: lukasss101
+## [Custom VotV - Satellite Recreation](https://github.com/madrod228/voicesoftheprinter/raw/refs/heads/main/The%20Archive/Page%20035/satellite.rar) CR: lukasss101
 ![satellite lukasss101](https://github.com/madrod228/voicesoftheprinter/assets/9602000/e869511a-b35b-468b-a8ff-ad6e0a677833)
 ## [Custom VotV - Soltomia Plush](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20035/soltomia_plush.7z) CR: tammasun
 ![tammasun soltomia](https://github.com/madrod228/voicesoftheprinter/assets/9602000/37301da0-b628-4242-8fdb-73c1ebec5ed1)
