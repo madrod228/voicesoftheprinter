@@ -625,7 +625,7 @@ see below
   - [Ammo Box](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20035/ammo_box_03121513_obj.7z)	CR: roomba8681
   - [Hatsune Miku  - Miku Figure](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20035/mikufigure.7z)	CR: its_sasha
   - [Generator](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20035/my_generatotexture_and_size_fixr.7z)	CR: roomba8681
-  - [Custom VotV  - Satellite Recreation](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20035/satellite.7z)	CR: lukasss101
+  - [Custom VotV  - Satellite Recreation](https://github.com/madrod228/voicesoftheprinter/raw/refs/heads/main/The%20Archive/Page%20035/satellite.rar)	CR: lukasss101
   - [Custom VotV  - Soltomia Plush](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20035/soltomia_plush.7z)	CR: tammasun
   - [Pokemon  - Vaporeon](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20035/vaporeon.7z)	CR: cobaltriley
 
