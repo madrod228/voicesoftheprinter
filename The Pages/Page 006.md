@@ -21,7 +21,7 @@
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/b51a508d-d3f2-47c8-8451-58da58353474)
 ## [Spamton Argem](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20006/Spamton_Argem_by_its_sasha.7z) CR: its_sasha
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/19cc3766-a1fa-465e-9b69-d89c2cb25112)
-## [Spore - Steve](https://discord.com/channels/512287844258021376/1132040858343059638/1154524997340115045) CR: sahneitsttoll
+## [Spore - Steve](https://github.com/madrod228/voicesoftheprinter/raw/refs/heads/main/The%20Archive/Page%20006/SporeSteve.rar) CR: sahneitsttoll
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/4fea2f97-662f-48de-bfe0-eaf9c7e76f8e)
 ## [Prototype Lego Brick](https://github.com/madrod228/voicesoftheprinter/raw/main/The%20Archive/Page%20006/Prototype_Lego_Brick_by_jettank123.7z) CR: jettank123
 ![image](https://github.com/madrod228/voicesoftheprinter/assets/9602000/c9b21d43-c8bf-4049-b176-b90712380db2)
